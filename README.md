@@ -798,207 +798,207 @@ Thân này thôi có còn gì mà mong.
 Đã sinh ra số long đong,  
 Còn mang lấy kiếp má hồng được sao?  
 Trên yên sẵn có con dao,  
-Giấu cầm nàng đã gói vào chéo khăn:
-Phòng khi nước đã đến chân,
-Dao này thì liệu với thân sau này.
-Đêm thu một khắc một chầy,
-Bâng khuâng như tỉnh như say một mình.
-Chẳng ngờ gã Mã Giám Sinh,
-Vẫn là một đứa phong tình đã quen.
-Quá chơi lại gặp hồi đen,
-Quen mùi lại kiếm ăn miền nguyệt hoa.
-Lầu xanh có mụ Tú Bà,
-Làng chơi đã trở về già hết duyên.
-Tình cờ chẳng hẹn mà nên,
-Mạt cưa mướp đắng đôi bên một phường.
-Chung lưng mở một ngôi hàng,
-Quanh năm buôn phấn bán hương đã lề.
-Dạo tìm khắp chợ thì quê,
-Giả danh hầu hạ dạy nghề ăn chơi.
-Rủi may âu cũng tại trời,
-Đoạn trường lại chọn mặt người vô duyên.
-Xót nàng chút phận thuyền quyên,
-Cành hoa đem bán vào thuyền lái buôn.
-Mẹo lừa đã mắc vào khuôn,
-Sính nghi rẻ giá nghênh hôn sẵn ngày.
-Mừng thầm: Cờ đã đến tay!
-Càng nhìn vẻ ngọc càng say khúc vàng.
-Đã nên quốc sắc thiên hương,
-Một cười này hẳn nghìn vàng chẳng ngoa.
-Về đây nước trước bẻ hoa,
-Vương tôn quý khách ắt là đua nhau.
-Hẳn ba trăm lạng kém đâu,
-Cũng đà vừa vốn còn sau thì lời,
-Miếng ngon kề đến tận nơi,
-Vốn nhà cũng tiếc của trời cũng tham.
-Đào tiên đã bén tay phàm,
-Thì vin cành quít cho cam sự đời!
-Dưới trần mấy mặt làng chơi,
-Chơi hoa đã dễ mấy người biết hoa.
-Nước vỏ lựu máu mào gà,
-Mượn màu chiêu tập lại là còn nguyên.
-Mập mờ đánh lận con đen,
-Bao nhiêu cũng bấy nhiêu tiền mất chi?
-Mụ già hoặc có điều gì,
-Liều công mất một buổi quỳ mà thôi.
-Vả đây đường xá xa xôi,
-Mà ta bất động nữa người sinh nghi.
-Tiếc thay một đóa trà mi,
-Con ong đã tỏ đường đi lối về.
-Một cơn mưa gió nặng nề,
-Thương gì đến ngọc tiếc gì đến hương.
-Đêm xuân một giấc mơ màng,
-Đuốc hoa để đó, mặc nàng nằm trơ.
-Giọt riêng tầm tã tuôn mưa,
-Phần căm nỗi khách phần dơ nỗi mình:
-Tuồng chi là giống hôi tanh,
-Thân nghìn vàng để ô danh má hồng.
-Thôi còn chi nữa mà mong?
-Đời người thôi thế là xong một đời.
-Giận duyên tủi phận bời bời,
-Cầm dao nàng đã toan bài quyên sinh.
-Nghĩ đi nghĩ lại một mình:
-Một mình thì chớ hai tình thì sao?
-Sao dầu sinh sự thế nào,
-Truy nguyên chẳng kẻo lụy vào song thân.
-Nỗi mình âu cũng giãn dần,
-Kíp chầy thôi cũng một lần mà thôi.
-Những là đo đắn ngược xuôi,
-Tiếng gà nghe đã gáy sôi mái tường.
-Lầu mai vừa rúc còi sương,
-Mã Sinh giục giã vội vàng ra đi.
-Đoạn trường thay lúc phân kỳ!
-Vó câu khấp khểnh bóng xe gập ghềnh.
-Bề ngoài mười dặm trường đình,
-Vương ông mở tiệc tiễn hành đưa theo.
-Ngoài thì chủ khách dập dìu,
-Một nhà huyên với một Kiều ở trong.
-Nhìn càng lã chã giọt hồng,
-Rỉ tai nàng mới giãi lòng thấp cao:
-Hổ sinh ra phận thơ đào,
-Công cha nghĩa mẹ kiếp nào trả xong?
-Lỡ làng nước đục bụi trong,
-Trăm năm để một tấm lòng từ đây.
-Xem gương trong bấy nhiêu ngày,
-Thân con chẳng kẻo mắc tay bợm già!
-Khi về bỏ vắng trong nhà,
-Khi vào dùng dắng khi ra vội vàng.
-Khi ăn khi nói lỡ làng,
-Khi thầy khi tớ xem thường xem khinh.
-Khác màu kẻ quý người thanh,
-Ngẫm ra cho kỹ như hình con buôn.
-Thôi con còn nói chi con?
-Sống nhờ đất khách thác chôn quê người!
-Vương bà nghe bấy nhiêu lời,
-Tiếng oan đã muốn vạch trời kêu lên.
-Vài tuần chưa cạn chén khuyên.
-Mái ngoài nghỉ đã giục liền ruổi xe.
-Xót con lòng nặng trì trì,
-Trước yên ông đã nằn nì thấp cao:
-Chút thân yếu liễu tơ đào,
-Rớp nhà đến nỗi giấn vào tôi ngươi.
-Từ đây góc bể bên trời,
-Nắng mưa thui thủi quê người một thân.
-Nghìn tầm nhờ bóng tùng quân,
-Tuyết sương che chở cho thân cát đằng.
-Cạn lời khách mới thưa rằng:
-Buộc chân thôi cũng xích thằng nhiệm trao.
-Mai sau dầu đến thế nào,
-Kìa gương nhật nguyệt nọ dao quỉ thần!
-Đùng đùng gió giục mây vần,
-Một xe trong cõi hồng trần như bay.
-Trông vời gạt lệ chia tay,
-Góc trời thăm thẳm đêm ngày đăm đăm.
-Nàng thì dặm khách xa xăm,
-Bạc phau cầu giá đen rầm ngàn mây.
-Vi lô san sát hơi may,
-Một trời thu để riêng ai một người.
-Dặm khuya ngất tạnh mù khơi,
-Thấy trăng mà thẹn những lời non sông.
-Rừng thu từng biếc xen hồng,
-Nghe chim như nhắc tấm lòng thần hôn.
-Những là lạ nước lạ non,
-Lâm Truy vừa một tháng tròn tới nơi.
-Xe châu dừng bánh cửa ngoài,
-Rèm trong đã thấy một người bước ra.
-Thoắt trông nhờn nhợt màu da,
-Ăn gì cao lớn đẫy đà làm sao!
-Trước xe lơi lả han chào,
-Vâng lời nàng mới bước vào tận nơi.
-Bên thì mấy ả mày ngài,
-Bên thì ngồi bốn năm người làng chơi.
-Giữa thì hương án hẳn hoi,
-Trên treo một tượng trắng đôi lông mày.
-Lầu xanh quen lối xưa nay,
-Nghề này thì lấy ông này tiên sư,
-Hương hôm hoa sớm phụng thờ.
-Cô nào xấu vía có thưa mối hàng,
-Cởi xiêm lột áo sỗ sàng,
-Trước thần sẽ nguyện mảnh hương lầm rầm.
-Đổi hoa lót xuống chiếu nằm,
-Bướm hoa bay lại ầm ầm tứ vi!
-Kiều còn ngơ ngẩn biết gì,
-Cứ lời lạy xuống mụ thì khấn ngay:
-Cửa hàng buôn bán cho may,
-Đêm đêm Hàn thực ngày ngày Nguyên tiêu.
-Muôn nghìn người thấy cũng yêu,
-Xôn xao oanh yến rập rìu trúc mai.
-Tin nhạn vẩn lá thư bài,
-Đưa người cửa trước rước người cửa sau.
-Lạ tai nghe chửa biết đâu,
-Xem tình ra cũng những màu dở dang.
-Lễ xong hương hỏa gia đường,
-Tú Bà vắt nóc lên giường ngồi ngay.
-Dạy rằng: Con lạy mẹ đây,
-Lạy rồi sang lạy cậu mày bên kia.
-Nàng rằng: Phải bước lưu ly,
-Phận hèn vâng đã cam bề tiểu tinh.
-Điều đâu lấy yến làm oanh,
-Ngây thơ chẳng biết là danh phận gì?
-Đủ điều nạp thái vu qui,
-Đã khi chung chạ lại khi đứng ngồi.
-Giờ ra thay mặt đổi ngôi,
-Dám xin gửi lại một lời cho minh.
-Mụ nghe nàng nói hay tình,
-Bấy giờ mới nổi tam bành mụ lên:
-Này này sự đã quả nhiên,
-Thôi đà cướp sống chồng min đi rồi.
-Bảo rằng đi dạo lấy người,
-Đem về rước khách kiếm lời mà ăn.
-Tuồng vô nghĩa ở bất nhân,
-Buồn mình trước đã tần mần thử chơi.
-Màu hồ đã mất đi rồi,
-Thôi thôi vốn liếng đi đời nhà ma!
-Con kia đã bán cho ta,
-Nhập ra phải cứ phép nhà tao đây.
-Lão kia có giở bài bây,
-Chẳng văng vào mặt mà mày lại nghe.
-Cớ sao chịu tốt một bề,
-Gái tơ mà đã ngứa nghề sớm sao?
-Phải làm cho biết phép tao!
-Chập bì tiên rắp sấn vào ra tay.
-Nàng rằng: Trời thẳm đất dày!
-Thân này đã bỏ những ngày ra đi.
-Thôi thì thôi có tiếc gì!
-Sẵn dao tay áo tức thì giở ra.
-Sợ gan nát ngọc liều hoa!
-Mụ còn trông mặt nàng đà quá tay.
-Thương ôi tài sắc bậc này,
-Một dao oan nghiệt đứt dây phong trần.
-Nỗi oan vỡ lở xa gần,
-Trong nhà người chật một lần như nêm.
-Nàng thì bằn bặt giấc tiên,
-Mụ thì cầm cập mặt nhìn hồn bay.
-Vực nàng vào chốn hiên tây,
-Cắt người coi sóc chạy thầy thuốc thang.
-Nào hay chưa hết trần duyên,
-Trong mê dường đã đứng bên một nàng.
-Rỉ rằng: Nhân quả dở dang,
-Đã toan trốn nợ đoạn trường được sao?
-Số còn nặng nợ má đào,
-Người dầu muốn quyết trời nào đã cho.
-Hãy xin hết kiếp liễu bồ,
-Sông Tiền Đường sẽ hẹn hò về sau.
+Giấu cầm nàng đã gói vào chéo khăn:  
+Phòng khi nước đã đến chân,  
+Dao này thì liệu với thân sau này.  
+Đêm thu một khắc một chầy,  
+Bâng khuâng như tỉnh như say một mình.  
+Chẳng ngờ gã Mã Giám Sinh,  
+Vẫn là một đứa phong tình đã quen.  
+Quá chơi lại gặp hồi đen,  
+Quen mùi lại kiếm ăn miền nguyệt hoa.  
+Lầu xanh có mụ Tú Bà,  
+Làng chơi đã trở về già hết duyên.  
+Tình cờ chẳng hẹn mà nên,  
+Mạt cưa mướp đắng đôi bên một phường.  
+Chung lưng mở một ngôi hàng,  
+Quanh năm buôn phấn bán hương đã lề.  
+Dạo tìm khắp chợ thì quê,  
+Giả danh hầu hạ dạy nghề ăn chơi.  
+Rủi may âu cũng tại trời,  
+Đoạn trường lại chọn mặt người vô duyên.  
+Xót nàng chút phận thuyền quyên,  
+Cành hoa đem bán vào thuyền lái buôn.  
+Mẹo lừa đã mắc vào khuôn,  
+Sính nghi rẻ giá nghênh hôn sẵn ngày.  
+Mừng thầm: Cờ đã đến tay!  
+Càng nhìn vẻ ngọc càng say khúc vàng.  
+Đã nên quốc sắc thiên hương,  
+Một cười này hẳn nghìn vàng chẳng ngoa.  
+Về đây nước trước bẻ hoa,  
+Vương tôn quý khách ắt là đua nhau.  
+Hẳn ba trăm lạng kém đâu,  
+Cũng đà vừa vốn còn sau thì lời,  
+Miếng ngon kề đến tận nơi,  
+Vốn nhà cũng tiếc của trời cũng tham.  
+Đào tiên đã bén tay phàm,  
+Thì vin cành quít cho cam sự đời!  
+Dưới trần mấy mặt làng chơi,  
+Chơi hoa đã dễ mấy người biết hoa.  
+Nước vỏ lựu máu mào gà,  
+Mượn màu chiêu tập lại là còn nguyên.  
+Mập mờ đánh lận con đen,  
+Bao nhiêu cũng bấy nhiêu tiền mất chi?  
+Mụ già hoặc có điều gì,  
+Liều công mất một buổi quỳ mà thôi.  
+Vả đây đường xá xa xôi,  
+Mà ta bất động nữa người sinh nghi.  
+Tiếc thay một đóa trà mi,  
+Con ong đã tỏ đường đi lối về.  
+Một cơn mưa gió nặng nề,  
+Thương gì đến ngọc tiếc gì đến hương.  
+Đêm xuân một giấc mơ màng,  
+Đuốc hoa để đó, mặc nàng nằm trơ.  
+Giọt riêng tầm tã tuôn mưa,  
+Phần căm nỗi khách phần dơ nỗi mình:  
+Tuồng chi là giống hôi tanh,  
+Thân nghìn vàng để ô danh má hồng.  
+Thôi còn chi nữa mà mong?  
+Đời người thôi thế là xong một đời.  
+Giận duyên tủi phận bời bời,  
+Cầm dao nàng đã toan bài quyên sinh.  
+Nghĩ đi nghĩ lại một mình:  
+Một mình thì chớ hai tình thì sao?  
+Sao dầu sinh sự thế nào,  
+Truy nguyên chẳng kẻo lụy vào song thân.  
+Nỗi mình âu cũng giãn dần,  
+Kíp chầy thôi cũng một lần mà thôi.  
+Những là đo đắn ngược xuôi,  
+Tiếng gà nghe đã gáy sôi mái tường.  
+Lầu mai vừa rúc còi sương,  
+Mã Sinh giục giã vội vàng ra đi.  
+Đoạn trường thay lúc phân kỳ!  
+Vó câu khấp khểnh bóng xe gập ghềnh.  
+Bề ngoài mười dặm trường đình,  
+Vương ông mở tiệc tiễn hành đưa theo.  
+Ngoài thì chủ khách dập dìu,  
+Một nhà huyên với một Kiều ở trong.  
+Nhìn càng lã chã giọt hồng,  
+Rỉ tai nàng mới giãi lòng thấp cao:  
+Hổ sinh ra phận thơ đào,  
+Công cha nghĩa mẹ kiếp nào trả xong?  
+Lỡ làng nước đục bụi trong,  
+Trăm năm để một tấm lòng từ đây.  
+Xem gương trong bấy nhiêu ngày,  
+Thân con chẳng kẻo mắc tay bợm già!  
+Khi về bỏ vắng trong nhà,  
+Khi vào dùng dắng khi ra vội vàng.  
+Khi ăn khi nói lỡ làng,  
+Khi thầy khi tớ xem thường xem khinh.  
+Khác màu kẻ quý người thanh,  
+Ngẫm ra cho kỹ như hình con buôn.  
+Thôi con còn nói chi con?  
+Sống nhờ đất khách thác chôn quê người!  
+Vương bà nghe bấy nhiêu lời,  
+Tiếng oan đã muốn vạch trời kêu lên.  
+Vài tuần chưa cạn chén khuyên.  
+Mái ngoài nghỉ đã giục liền ruổi xe.  
+Xót con lòng nặng trì trì,  
+Trước yên ông đã nằn nì thấp cao:  
+Chút thân yếu liễu tơ đào,  
+Rớp nhà đến nỗi giấn vào tôi ngươi.  
+Từ đây góc bể bên trời,  
+Nắng mưa thui thủi quê người một thân.  
+Nghìn tầm nhờ bóng tùng quân,  
+Tuyết sương che chở cho thân cát đằng.  
+Cạn lời khách mới thưa rằng:  
+Buộc chân thôi cũng xích thằng nhiệm trao.  
+Mai sau dầu đến thế nào,  
+Kìa gương nhật nguyệt nọ dao quỉ thần!  
+Đùng đùng gió giục mây vần,  
+Một xe trong cõi hồng trần như bay.  
+Trông vời gạt lệ chia tay,  
+Góc trời thăm thẳm đêm ngày đăm đăm.  
+Nàng thì dặm khách xa xăm,  
+Bạc phau cầu giá đen rầm ngàn mây.  
+Vi lô san sát hơi may,  
+Một trời thu để riêng ai một người.  
+Dặm khuya ngất tạnh mù khơi,  
+Thấy trăng mà thẹn những lời non sông.  
+Rừng thu từng biếc xen hồng,  
+Nghe chim như nhắc tấm lòng thần hôn.  
+Những là lạ nước lạ non,  
+Lâm Truy vừa một tháng tròn tới nơi.  
+Xe châu dừng bánh cửa ngoài,  
+Rèm trong đã thấy một người bước ra.  
+Thoắt trông nhờn nhợt màu da,  
+Ăn gì cao lớn đẫy đà làm sao!  
+Trước xe lơi lả han chào,  
+Vâng lời nàng mới bước vào tận nơi.  
+Bên thì mấy ả mày ngài,  
+Bên thì ngồi bốn năm người làng chơi.  
+Giữa thì hương án hẳn hoi,  
+Trên treo một tượng trắng đôi lông mày.  
+Lầu xanh quen lối xưa nay,  
+Nghề này thì lấy ông này tiên sư,  
+Hương hôm hoa sớm phụng thờ.  
+Cô nào xấu vía có thưa mối hàng,  
+Cởi xiêm lột áo sỗ sàng,  
+Trước thần sẽ nguyện mảnh hương lầm rầm.  
+Đổi hoa lót xuống chiếu nằm,  
+Bướm hoa bay lại ầm ầm tứ vi!  
+Kiều còn ngơ ngẩn biết gì,  
+Cứ lời lạy xuống mụ thì khấn ngay:  
+Cửa hàng buôn bán cho may,  
+Đêm đêm Hàn thực ngày ngày Nguyên tiêu.  
+Muôn nghìn người thấy cũng yêu,  
+Xôn xao oanh yến rập rìu trúc mai.  
+Tin nhạn vẩn lá thư bài,  
+Đưa người cửa trước rước người cửa sau.  
+Lạ tai nghe chửa biết đâu,  
+Xem tình ra cũng những màu dở dang.  
+Lễ xong hương hỏa gia đường,  
+Tú Bà vắt nóc lên giường ngồi ngay.  
+Dạy rằng: Con lạy mẹ đây,  
+Lạy rồi sang lạy cậu mày bên kia.  
+Nàng rằng: Phải bước lưu ly,  
+Phận hèn vâng đã cam bề tiểu tinh.  
+Điều đâu lấy yến làm oanh,  
+Ngây thơ chẳng biết là danh phận gì?  
+Đủ điều nạp thái vu qui,  
+Đã khi chung chạ lại khi đứng ngồi.  
+Giờ ra thay mặt đổi ngôi,  
+Dám xin gửi lại một lời cho minh.  
+Mụ nghe nàng nói hay tình,  
+Bấy giờ mới nổi tam bành mụ lên:  
+Này này sự đã quả nhiên,  
+Thôi đà cướp sống chồng min đi rồi.  
+Bảo rằng đi dạo lấy người,  
+Đem về rước khách kiếm lời mà ăn.  
+Tuồng vô nghĩa ở bất nhân,  
+Buồn mình trước đã tần mần thử chơi.  
+Màu hồ đã mất đi rồi,  
+Thôi thôi vốn liếng đi đời nhà ma!  
+Con kia đã bán cho ta,  
+Nhập ra phải cứ phép nhà tao đây.  
+Lão kia có giở bài bây,  
+Chẳng văng vào mặt mà mày lại nghe.  
+Cớ sao chịu tốt một bề,  
+Gái tơ mà đã ngứa nghề sớm sao?  
+Phải làm cho biết phép tao!  
+Chập bì tiên rắp sấn vào ra tay.  
+Nàng rằng: Trời thẳm đất dày!  
+Thân này đã bỏ những ngày ra đi.  
+Thôi thì thôi có tiếc gì!  
+Sẵn dao tay áo tức thì giở ra.  
+Sợ gan nát ngọc liều hoa!  
+Mụ còn trông mặt nàng đà quá tay.  
+Thương ôi tài sắc bậc này,  
+Một dao oan nghiệt đứt dây phong trần.  
+Nỗi oan vỡ lở xa gần,  
+Trong nhà người chật một lần như nêm.  
+Nàng thì bằn bặt giấc tiên,  
+Mụ thì cầm cập mặt nhìn hồn bay.  
+Vực nàng vào chốn hiên tây,  
+Cắt người coi sóc chạy thầy thuốc thang.  
+Nào hay chưa hết trần duyên,  
+Trong mê dường đã đứng bên một nàng.  
+Rỉ rằng: Nhân quả dở dang,  
+Đã toan trốn nợ đoạn trường được sao?  
+Số còn nặng nợ má đào,  
+Người dầu muốn quyết trời nào đã cho.  
+Hãy xin hết kiếp liễu bồ,  
+Sông Tiền Đường sẽ hẹn hò về sau.  
 Thuốc thang suốt một ngày thâu,
 Giấc mê nghe đã dàu dàu vừa tan.
 Tú Bà chực sẵn bên màn,
