@@ -107,9 +107,6 @@ Vân rằng: Chị cũng nực cười,
 Khéo dư nước mắt khóc người đời xưa.  
 Rằng: Hồng nhan tự thuở xưa,  
 Cái điều bạc mệnh có chừa ai đâu?  
-
-
-
 Nỗi niềm tưởng đến mà đau,  
 Thấy người nằm đó biết sau thế nào?  
 Quan rằng: Chị nói hay sao,  
