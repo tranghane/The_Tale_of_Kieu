@@ -1098,116 +1098,116 @@ Lạy thôi, nàng mới rỉ tai ân cần.
 Rằng: Tôi bèo bọt chút thân,  
 Lạc đàn mang lấy nợ nần yến anh.  
 Dám nhờ cốt nhục tử sinh,  
-Còn nhiều kết cỏ ngậm vành về sau!
-Lặng nghe, lẩm nhẩm gật đầu:
-Ta đây phải mượn ai đâu mà rằng!
-Nàng đà biết đến ta chăng,
-Bể trầm luân, lấp cho bằng mới thôi!
-Nàng rằng: Muôn sự ơn người,
-Thế nào xin quyết một bài cho xong.
-Rằng: Ta có ngựa truy phong,
-Có tên dưới trướng, vốn dòng kiện nhi.
-Thừa cơ lẻn bước ra đi,
-Ba mươi sáu chước, chước gì là hơn.
-Dù khi gió kép, mưa đơn,
-Có ta đây cũng chẳng cơn cớ gì!
-Nghe lời nàng đã sinh nghi,
-Song đà quá đỗi, quản gì được thân.
-Cũng liều nhắm mắt đưa chân,
-Mà xem con Tạo xoay vần đến đâu!
-Cùng nhau lẻn bước xuống lầu,
-Song song ngựa trước, ngựa sau một đoàn.
-Đêm thâu khắc lậu canh tàn,
-Gió cây trút lá, trăng ngàn ngậm gương.
-Lối mòn cỏ nhợt mù sương,
-Lòng quê đi một bước đường, một đau.
-Tiếng gà xao xác gáy mau,
-Tiếng người đâu đã mái sau dậy dàng.
-Nàng càng thổn thức gan vàng,
-Sở Khanh đã rẽ dây cương lối nào!
-Một mình khôn biết làm sao,
-Dặm rừng bước thấp, bước cao hãi hùng.
-Hóa nhi thật có nỡ lòng,
-Làm chi dày tía, vò hồng, lắm nau!
-Một đoàn đổ đến trước sau,
-Vuốt đâu xuống đất, cánh đâu lên trời.
-Tú Bà tốc thẳng đến nơi,
-Hầm hầm áp điệu một hơi lại nhà.
-Hung hăng chẳng nói chẳng tra,
-Đang tay vùi liễu, giập hoa tơi bời.
-Thịt da ai cũng là người,
-Lòng nào hồng rụng, thắm rời chẳng đau.
-Hết lời thú phục, khẩn cầu,
-Uốn lưng thịt đổ, cất đầu máu sa.
-Rằng: Tôi chút phận đàn bà,
-Nước non lìa cửa, lìa nhà, đến đây.
-Bây giờ sống chết ở tay,
-Thân này đã đến thế này thì thôi!
-Nhưng tôi có sá chi tôi,
-Phận tôi đành vậy, vốn người để đâu?
-Thân lươn bao quản lấm đầu,
-Chút lòng trinh bạch từ sau xin chừa!
-Được lời mụ mới tùy cơ,
-Bắt người bảo lĩnh làm tờ cung chiêu.
-Bày vai có ả Mã Kiều,
-Xót nàng, ra mới đánh liều chịu đoan.
-Mụ càng kể nhặt, kể khoan,
-Gạn gùng đến mực, nồng nàn mới tha.
-Vực nàng vào nghỉ trong nhà,
-Mã Kiều lại ngỏ ý ra dặn lời:
-Thôi đà mắc lận thì thôi!
-Đi đâu chẳng biết con người Sở Khanh?
-Bạc tình, nổi tiếng lầu xanh,
-Một tay chôn biết mấy cành phù dung!
-Đà đao lập sẵn chước dùng,
-Lạ gì một cốt một đồng xưa nay!
-Có ba mươi lạng trao tay,
-Không dưng chi có chuyện này, trò kia!
-Rồi ra trở mặt tức thì,
-Bớt lời, liệu chớ sân si, thiệt đời!
-Nàng rằng: Thề thốt nặng lời,
-Có đâu mà lại ra người hiểm sâu!
-Còn đương suy trước, nghĩ sau,
-Mặt mo đã thấy ở đâu dẫn vào.
-Sở Khanh lên tiếng rêu rao:
-Rằng nghe mới có con nào ở đây.
-Phao cho quyến gió rủ mây,
-Hãy xem có biết mặt này là ai
-Nàng rằng: Thôi thế thì thôi!
-Rằng không, thì cũng vâng lời là không!
-Sở Khanh quát mắng đùng đùng,
-Sấn vào, vừa rắp thị hùng ra tay,
-Nàng rằng: Trời nhé có hay!
-Quyến anh, rủ yến, sự này tại ai?
-Đem người giẩy xuống giếng khơi,
-Nói rồi, rồi lại ăn lời được ngay!
-Còn tiên tích việt ở tay,
-Rõ ràng mặt ấy, mặt này chứ ai?
-Lời ngay, đông mặt trong ngoài,
-Kẻ chê bất nghĩa, người cười vô lương!
-Phụ tình án đã rõ ràng,
-Dơ tuồng, nghỉ mới kiếm đường tháo lui.
-Buồng riêng, riêng những sụt sùi:
-Nghĩ thân, mà lại ngậm ngùi cho thân.
-Tiếc thay trong giá trắng ngần,
-Đến phong trần, cũng phong trần như ai!
-Tẻ vui cũng một kiếp người,
-Hồng nhan phải giống ở đời mãi ru!
-Kiếp xưa đã vụng đường tu,
-Kiếp này chẳng kẻo đền bù mới xuôi!
-Dù sao bình đã vỡ rồi,
-Lấy thân mà trả nợ đời cho xong!
-Vừa tuần nguyệt sáng, gương trong,
-Tú Bà ghé lại thong dong dặn dò:
-Nghề chơi cũng lắm công phu,
-Làng chơi ta phải biết cho đủ điều.
-Nàng rằng: Mưa gió dập dìu,
-Liều thân, thì cũng phải liều thế thôi!
-Mụ rằng: Ai cũng như ai,
-Người ta ai mất tiền hoài đến đây?
-Ở trong còn lắm điều hay,
-Nỗi đêm khép mở, nỗi ngày riêng chung.
-Này con thuộc lấy nằm lòng,
+Còn nhiều kết cỏ ngậm vành về sau!  
+Lặng nghe, lẩm nhẩm gật đầu:  
+Ta đây phải mượn ai đâu mà rằng!  
+Nàng đà biết đến ta chăng,  
+Bể trầm luân, lấp cho bằng mới thôi!  
+Nàng rằng: Muôn sự ơn người,  
+Thế nào xin quyết một bài cho xong.  
+Rằng: Ta có ngựa truy phong,  
+Có tên dưới trướng, vốn dòng kiện nhi.  
+Thừa cơ lẻn bước ra đi,  
+Ba mươi sáu chước, chước gì là hơn.  
+Dù khi gió kép, mưa đơn,  
+Có ta đây cũng chẳng cơn cớ gì!  
+Nghe lời nàng đã sinh nghi,  
+Song đà quá đỗi, quản gì được thân.  
+Cũng liều nhắm mắt đưa chân,  
+Mà xem con Tạo xoay vần đến đâu!  
+Cùng nhau lẻn bước xuống lầu,  
+Song song ngựa trước, ngựa sau một đoàn.  
+Đêm thâu khắc lậu canh tàn,  
+Gió cây trút lá, trăng ngàn ngậm gương.  
+Lối mòn cỏ nhợt mù sương,  
+Lòng quê đi một bước đường, một đau.  
+Tiếng gà xao xác gáy mau,  
+Tiếng người đâu đã mái sau dậy dàng.  
+Nàng càng thổn thức gan vàng,  
+Sở Khanh đã rẽ dây cương lối nào!  
+Một mình khôn biết làm sao,  
+Dặm rừng bước thấp, bước cao hãi hùng.  
+Hóa nhi thật có nỡ lòng,  
+Làm chi dày tía, vò hồng, lắm nau!  
+Một đoàn đổ đến trước sau,  
+Vuốt đâu xuống đất, cánh đâu lên trời.  
+Tú Bà tốc thẳng đến nơi,  
+Hầm hầm áp điệu một hơi lại nhà.  
+Hung hăng chẳng nói chẳng tra,  
+Đang tay vùi liễu, giập hoa tơi bời.  
+Thịt da ai cũng là người,  
+Lòng nào hồng rụng, thắm rời chẳng đau.  
+Hết lời thú phục, khẩn cầu,  
+Uốn lưng thịt đổ, cất đầu máu sa.  
+Rằng: Tôi chút phận đàn bà,  
+Nước non lìa cửa, lìa nhà, đến đây.  
+Bây giờ sống chết ở tay,  
+Thân này đã đến thế này thì thôi!  
+Nhưng tôi có sá chi tôi,  
+Phận tôi đành vậy, vốn người để đâu?  
+Thân lươn bao quản lấm đầu,  
+Chút lòng trinh bạch từ sau xin chừa!  
+Được lời mụ mới tùy cơ,  
+Bắt người bảo lĩnh làm tờ cung chiêu.  
+Bày vai có ả Mã Kiều,  
+Xót nàng, ra mới đánh liều chịu đoan.  
+Mụ càng kể nhặt, kể khoan,  
+Gạn gùng đến mực, nồng nàn mới tha.  
+Vực nàng vào nghỉ trong nhà,  
+Mã Kiều lại ngỏ ý ra dặn lời:  
+Thôi đà mắc lận thì thôi!  
+Đi đâu chẳng biết con người Sở Khanh?  
+Bạc tình, nổi tiếng lầu xanh,  
+Một tay chôn biết mấy cành phù dung!  
+Đà đao lập sẵn chước dùng,  
+Lạ gì một cốt một đồng xưa nay!  
+Có ba mươi lạng trao tay,  
+Không dưng chi có chuyện này, trò kia!  
+Rồi ra trở mặt tức thì,  
+Bớt lời, liệu chớ sân si, thiệt đời!  
+Nàng rằng: Thề thốt nặng lời,  
+Có đâu mà lại ra người hiểm sâu!  
+Còn đương suy trước, nghĩ sau,  
+Mặt mo đã thấy ở đâu dẫn vào.  
+Sở Khanh lên tiếng rêu rao:  
+Rằng nghe mới có con nào ở đây.  
+Phao cho quyến gió rủ mây,  
+Hãy xem có biết mặt này là ai  
+Nàng rằng: Thôi thế thì thôi!  
+Rằng không, thì cũng vâng lời là không!  
+Sở Khanh quát mắng đùng đùng,  
+Sấn vào, vừa rắp thị hùng ra tay,  
+Nàng rằng: Trời nhé có hay!  
+Quyến anh, rủ yến, sự này tại ai?  
+Đem người giẩy xuống giếng khơi,  
+Nói rồi, rồi lại ăn lời được ngay!  
+Còn tiên tích việt ở tay,  
+Rõ ràng mặt ấy, mặt này chứ ai?  
+Lời ngay, đông mặt trong ngoài,  
+Kẻ chê bất nghĩa, người cười vô lương!  
+Phụ tình án đã rõ ràng,  
+Dơ tuồng, nghỉ mới kiếm đường tháo lui.  
+Buồng riêng, riêng những sụt sùi:  
+Nghĩ thân, mà lại ngậm ngùi cho thân.  
+Tiếc thay trong giá trắng ngần,  
+Đến phong trần, cũng phong trần như ai!  
+Tẻ vui cũng một kiếp người,  
+Hồng nhan phải giống ở đời mãi ru!  
+Kiếp xưa đã vụng đường tu,  
+Kiếp này chẳng kẻo đền bù mới xuôi!  
+Dù sao bình đã vỡ rồi,  
+Lấy thân mà trả nợ đời cho xong!  
+Vừa tuần nguyệt sáng, gương trong,  
+Tú Bà ghé lại thong dong dặn dò:  
+Nghề chơi cũng lắm công phu,  
+Làng chơi ta phải biết cho đủ điều.  
+Nàng rằng: Mưa gió dập dìu,  
+Liều thân, thì cũng phải liều thế thôi!  
+Mụ rằng: Ai cũng như ai,  
+Người ta ai mất tiền hoài đến đây?  
+Ở trong còn lắm điều hay,  
+Nỗi đêm khép mở, nỗi ngày riêng chung.  
+Này con thuộc lấy nằm lòng,  
 Vành ngoài bảy chữ, vành trong tám nghề.
 Chơi cho liễu chán, hoa chê,
 Cho lăn lóc đá, cho mê mẩn đời.
