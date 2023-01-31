@@ -103,18 +103,13 @@ Lại càng mê mẩn tâm thần
 Lại càng đứng lặng tần ngần chẳng ra.  
 Lại càng ủ dột nét hoa,  
 Sầu tuôn đứt nối, châu sa vắn dài.  
+Vân rằng: Chị cũng nực cười,  
+Khéo dư nước mắt khóc người đời xưa.  
+Rằng: Hồng nhan tự thuở xưa,  
+Cái điều bạc mệnh có chừa ai đâu?  
 
 
 
-
-
-
-
-
-Vân rằng: Chị cũng nực cười,
-Khéo dư nước mắt khóc người đời xưa.
-Rằng: Hồng nhan tự thuở xưa,
-Cái điều bạc mệnh có chừa ai đâu?
 Nỗi niềm tưởng đến mà đau,
 Thấy người nằm đó biết sau thế nào?
 Quan rằng: Chị nói hay sao,
