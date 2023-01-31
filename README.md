@@ -1,11 +1,17 @@
 <p>
 Trăm năm trong cõi người ta,
+ //
 Chữ tài chữ mệnh khéo là ghét nhau.
+ //
 Trải qua một cuộc bể dâu,
+ //
 Những điều trông thấy mà đau đớn lòng.
+ //
 Lạ gì bỉ sắc tư phong,
+//
 Trời xanh quen thói má hồng đánh ghen.
-Cảo thơm lần giở trước đèn,
+//
+ Cảo thơm lần giở trước đèn,
 Phong tình cổ lục còn truyền sử xanh.
 Rằng năm Gia Tĩnh triều Minh,
 Bốn phương phẳng lặng, hai kinh vững vàng.
