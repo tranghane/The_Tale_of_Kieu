@@ -290,7 +290,7 @@ Tuần trăng thấm thoắt nay đà thèm hai.
 Cách tường phải buổi êm trời,  
 Dưới đào dường có bóng người thướt tha.  
 Buông cầm xốc áo vội ra,  
-Hương còn thơm nức, người đà vắng tanh.
+Hương còn thơm nức, người đà vắng tanh.  
 Lần theo tường gấm dạo quanh,  
 Trên đào nhác thấy một cành kim thoa.  
 Giơ tay với lấy về nhà:  
