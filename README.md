@@ -999,105 +999,105 @@ Số còn nặng nợ má đào,
 Người dầu muốn quyết trời nào đã cho.  
 Hãy xin hết kiếp liễu bồ,  
 Sông Tiền Đường sẽ hẹn hò về sau.  
-Thuốc thang suốt một ngày thâu,
-Giấc mê nghe đã dàu dàu vừa tan.
-Tú Bà chực sẵn bên màn,
-Lựa lời khuyên giải mơn man gỡ dần:
-Một người dễ có mấy thân!
-Hoa xuân đương nhụy, ngày xuân còn dài.
-Cũng là lỡ một lầm hai,
-Đá vàng sao nỡ ép nài mưa mây!
-Lỡ chưn trót đã vào đây,
-Khóa buồng xuân để đợi ngày đào non.
-Người còn thì của hãy còn,
-Tìm nơi xứng đáng là con cái nhà.
-Làm chi tội báo oán gia,
-Thiệt mình mà hại đến ta hay gì?
-Kề tai mấy mỗi nằn nì,
-Nàng nghe dường cũng thị phi rạch ròi.
-Vả suy thần mộng mấy lời,
-Túc nhân âu cũng có trời ở trong.
-Kiếp này nợ trả chưa xong,
-Làm chi thêm một nợ chồng kiếp sau!
-Lặng nghe, thấm thía gót đầu,
-Thưa rằng: Ai có muốn đâu thế này?
-Được như lời, thế là may,
-Hẳn rằng mai có như rày cho chăng!
-Sợ khi ong bướm đãi đằng,
-Đến điều sống đục, sao bằng thác trong!
-Mụ rằng: Con hãy thong dong,
-Phải điều lòng lại dối lòng mà chơi!
-Mai sau ở chẳng như lời,
-Trên đầu có bóng mặt trời rạng soi.
-Thấy lời quyết đoán hẳn hoi,
-Đành lòng, nàng cũng sẽ nguôi nguôi dần.
-Trước lầu Ngưng Bích khóa xuân,
-Vẻ non xa, tấm trăng gần, ở chung.
-Bốn bề bát ngát xa trông,
-Cát vàng cồn nọ, bụi hồng dặm kia.
-Bẽ bàng mây sớm đèn khuya,
-Nửa tình, nửa cảnh như chia tấm lòng.
-Tưởng người dưới nguyệt chén đồng,
-Tin sương luống những rày trông mai chờ.
-Bên trời góc bể bơ vơ,
-Tấm son gột rửa bao giờ cho phai.
-Xót người tựa cửa hôm mai,
-Quạt nồng ấp lạnh, những ai đó giờ?
-Sân Lai cách mấy nắng mưa,
-Có khi gốc tử đã vừa người ôm?
-Buồn trông cửa bể chiều hôm,
-Thuyền ai thấp thoáng cánh buồm xa xa?
-Buồn trông ngọn nước mới sa,
-Hoa trôi man mác, biết là về đâu?
-Buồn trông nội cỏ dàu dàu,
-Chân mây mặt đất một màu xanh xanh.
-Buồn trông gió cuốn mặt ghềnh
-Ầm ầm tiếng sóng kêu quanh ghế ngồi
-Chung quanh những nước non người,
-Đau lòng lưu lạc, nên vài bốn câu.
-Ngậm ngùi rủ bước rèm châu,
-Cách tường, nghe có tiếng đâu họa vần.
-Một chàng vừa trạc thanh xuân,
-Hình dong chải chuốt, áo khăn dịu dàng.
-Nghĩ rằng cũng mạch thư hương,
-Hỏi ra mới biết rằng chàng Sở Khanh.
-Bóng Nga thấp thoáng dưới mành,
-Trông nàng, chàng cũng ra tình đeo đai.
-Than ôi! Sắc nước hương trời,
-Tiếc cho đâu bỗng lạc loài đến đây?
-Giá đành trong nguyệt trên mây,
-Hoa sao, hoa khéo đọa đày bấy hoa?
-Tức gan riêng giận trời già,
-Lòng này ai tỏ cho ta, hỡi lòng?
-Thuyền quyên ví biết anh hùng,
-Ra tay tháo cũi, sổ lồng như chơi!
-Song thu đã khép cánh ngoài,
-Tai còn đồng vọng mấy lời sắt đanh.
-Nghĩ người thôi lại nghĩ mình,
-Cám lòng chua xót, nhạt tình chơ vơ.
-Những là lần lữa nắng mưa,
-Kiếp phong trần biết bao giờ mới thôi?
-Đánh liều nhắn một hai lời,
-Nhờ tay tế độ vớt người trầm luân.
-Mảnh tiên kể hết xa gần,
-Nỗi nhà báo đáp, nỗi thân lạc loài.
-Tan sương vừa rạng ngày mai,
-Tiện hồng nàng mới nhắn lời gửi sang.
-Trời tây lãng đãng bóng vàng,
-Phúc thư đã thấy tin chàng đến nơi.
-Mở xem một bức tiên mai,
-Rành rành tích việt có hai chữ đề.
-Lấy trong ý tứ mà suy:
-Ngày hai mươi mốt, tuất thì phải chăng?
-Chim hôm thoi thót về rừng,
-Đóa trà mi đã ngậm trăng nửa vành.
-Tường đông lay động bóng cành,
-Rẽ song, đã thấy Sở Khanh lẻn vào.
-Sượng sùng đánh dạn ra chào,
-Lạy thôi, nàng mới rỉ tai ân cần.
-Rằng: Tôi bèo bọt chút thân,
-Lạc đàn mang lấy nợ nần yến anh.
-Dám nhờ cốt nhục tử sinh,
+Thuốc thang suốt một ngày thâu,  
+Giấc mê nghe đã dàu dàu vừa tan.  
+Tú Bà chực sẵn bên màn,  
+Lựa lời khuyên giải mơn man gỡ dần:  
+Một người dễ có mấy thân!  
+Hoa xuân đương nhụy, ngày xuân còn dài.  
+Cũng là lỡ một lầm hai,  
+Đá vàng sao nỡ ép nài mưa mây!  
+Lỡ chưn trót đã vào đây,  
+Khóa buồng xuân để đợi ngày đào non.  
+Người còn thì của hãy còn,  
+Tìm nơi xứng đáng là con cái nhà.  
+Làm chi tội báo oán gia,  
+Thiệt mình mà hại đến ta hay gì?  
+Kề tai mấy mỗi nằn nì,  
+Nàng nghe dường cũng thị phi rạch ròi.  
+Vả suy thần mộng mấy lời,  
+Túc nhân âu cũng có trời ở trong.  
+Kiếp này nợ trả chưa xong,  
+Làm chi thêm một nợ chồng kiếp sau!  
+Lặng nghe, thấm thía gót đầu,  
+Thưa rằng: Ai có muốn đâu thế này?  
+Được như lời, thế là may,  
+Hẳn rằng mai có như rày cho chăng!  
+Sợ khi ong bướm đãi đằng,  
+Đến điều sống đục, sao bằng thác trong!  
+Mụ rằng: Con hãy thong dong,  
+Phải điều lòng lại dối lòng mà chơi!  
+Mai sau ở chẳng như lời,  
+Trên đầu có bóng mặt trời rạng soi.  
+Thấy lời quyết đoán hẳn hoi,  
+Đành lòng, nàng cũng sẽ nguôi nguôi dần.  
+Trước lầu Ngưng Bích khóa xuân,  
+Vẻ non xa, tấm trăng gần, ở chung.  
+Bốn bề bát ngát xa trông,  
+Cát vàng cồn nọ, bụi hồng dặm kia.  
+Bẽ bàng mây sớm đèn khuya,  
+Nửa tình, nửa cảnh như chia tấm lòng.  
+Tưởng người dưới nguyệt chén đồng,  
+Tin sương luống những rày trông mai chờ.  
+Bên trời góc bể bơ vơ,  
+Tấm son gột rửa bao giờ cho phai.  
+Xót người tựa cửa hôm mai,  
+Quạt nồng ấp lạnh, những ai đó giờ?  
+Sân Lai cách mấy nắng mưa,  
+Có khi gốc tử đã vừa người ôm?  
+Buồn trông cửa bể chiều hôm,  
+Thuyền ai thấp thoáng cánh buồm xa xa?  
+Buồn trông ngọn nước mới sa,  
+Hoa trôi man mác, biết là về đâu?  
+Buồn trông nội cỏ dàu dàu,  
+Chân mây mặt đất một màu xanh xanh.  
+Buồn trông gió cuốn mặt ghềnh  
+Ầm ầm tiếng sóng kêu quanh ghế ngồi  
+Chung quanh những nước non người,  
+Đau lòng lưu lạc, nên vài bốn câu.  
+Ngậm ngùi rủ bước rèm châu,  
+Cách tường, nghe có tiếng đâu họa vần.  
+Một chàng vừa trạc thanh xuân,  
+Hình dong chải chuốt, áo khăn dịu dàng.  
+Nghĩ rằng cũng mạch thư hương,  
+Hỏi ra mới biết rằng chàng Sở Khanh.  
+Bóng Nga thấp thoáng dưới mành,  
+Trông nàng, chàng cũng ra tình đeo đai.  
+Than ôi! Sắc nước hương trời,  
+Tiếc cho đâu bỗng lạc loài đến đây?  
+Giá đành trong nguyệt trên mây,  
+Hoa sao, hoa khéo đọa đày bấy hoa?  
+Tức gan riêng giận trời già,  
+Lòng này ai tỏ cho ta, hỡi lòng?  
+Thuyền quyên ví biết anh hùng,  
+Ra tay tháo cũi, sổ lồng như chơi!  
+Song thu đã khép cánh ngoài,  
+Tai còn đồng vọng mấy lời sắt đanh.  
+Nghĩ người thôi lại nghĩ mình,  
+Cám lòng chua xót, nhạt tình chơ vơ.  
+Những là lần lữa nắng mưa,  
+Kiếp phong trần biết bao giờ mới thôi?  
+Đánh liều nhắn một hai lời,  
+Nhờ tay tế độ vớt người trầm luân.  
+Mảnh tiên kể hết xa gần,  
+Nỗi nhà báo đáp, nỗi thân lạc loài.  
+Tan sương vừa rạng ngày mai,  
+Tiện hồng nàng mới nhắn lời gửi sang.  
+Trời tây lãng đãng bóng vàng,  
+Phúc thư đã thấy tin chàng đến nơi.  
+Mở xem một bức tiên mai,  
+Rành rành tích việt có hai chữ đề.  
+Lấy trong ý tứ mà suy:  
+Ngày hai mươi mốt, tuất thì phải chăng?  
+Chim hôm thoi thót về rừng,  
+Đóa trà mi đã ngậm trăng nửa vành.  
+Tường đông lay động bóng cành,  
+Rẽ song, đã thấy Sở Khanh lẻn vào.  
+Sượng sùng đánh dạn ra chào,  
+Lạy thôi, nàng mới rỉ tai ân cần.  
+Rằng: Tôi bèo bọt chút thân,  
+Lạc đàn mang lấy nợ nần yến anh.  
+Dám nhờ cốt nhục tử sinh,  
 Còn nhiều kết cỏ ngậm vành về sau!
 Lặng nghe, lẩm nhẩm gật đầu:
 Ta đây phải mượn ai đâu mà rằng!
