@@ -36,6 +36,73 @@ Một thiên bạc mệnh, lại càng não nhân.
 Phong lưu rất mực hồng quần,  
 Xuân xanh sấp xỉ tới tuần cập kê  
 Êm đềm trướng rủ màn che,  
+Tường đông ong bướm đi về mặc ai.  
+Ngày xuân con én đưa thoi,  
+Thiều quang chín chục đã ngoài sáu mươi.  
+Cỏ non xanh tận chân trời,  
+Cành lê trắng điểm một vài bông hoa.  
+Thanh minh trong tiết tháng ba,  
+Lễ là tảo mộ, hội là đạp Thanh.  
+Gần xa nô nức yến anh,  
+Chị em sắm sửa bộ hành chơi xuân.  
+Dập dìu tài tử, giai nhân,  
+Ngựa xe như nước áo quần như nêm.  
+Ngổn ngang gò đống kéo lên,  
+Thoi vàng vó rắc tro tiền giấy bay.  
+Tà tà bóng ngả về tây,  
+Chị em thơ thẩn dan tay ra về.  
+Bước dần theo ngọn tiểu khê,  
+Lần xem phong cảnh có bề thanh thanh.  
+Nao nao dòng nước uốn quanh,  
+Dịp cầu nho nhỏ cuối ghềnh bắc ngang.  
+Sè sè nấm đất bên đàng,  
+Dàu dàu ngọn cỏ nửa vàng nửa xanh.  
+Rằng: Sao trong tiết thanh minh,  
+Mà đây hương khói vắng tanh thế mà?  
+Vương Quan mới dẫn gần xa:  
+Đạm Tiên nàng ấy xưa là ca nhi.  
+Nổi danh tài sắc một thì,  
+Xôn xao ngoài cửa hiếm gì yến anh.  
+Kiếp hồng nhan có mong manh,  
+Nửa chừng xuân thoắt gãy cành thiên hương.  
+Có người khách ở viễn phương,  
+Xa nghe cũng nức tiếng nàng tìm chơi.  
+Thuyền tình vừa ghé tới nơi,  
+Thì đà trâm gãy bình rơi bao giờ.  
+Buồng không lạnh ngắt như tờ,  
+Dấu xe ngựa đã rêu lờ mờ xanh.  
+Khóc than khôn xiết sự tình,  
+Khéo vô duyên ấy là mình với ta.  
+Đã không duyên trước chăng mà,  
+Thì chi chút ước gọi là duyên sau.  
+Sắm xanh nếp tử xe châu,  
+Vùi nông một nấm mặc dầu cỏ hoa.  
+Trải bao thỏ lặn ác tà,  
+Ấy mồ vô chủ, ai mà viếng thăm!  
+Lòng đâu sẵn mối thương tâm,  
+Thoắt nghe Kiều đã đầm đầm châu sa.  
+Đau đớn thay phận đàn bà!  
+Lời rằng bạc mệnh cũng là lời chung.  
+Phũ phàng chi bấy hóa công,  
+Ngày xanh mòn mỏi má hồng phôi pha.  
+Sống làm vợ khắp người ta,  
+Khéo thay thác xuống làm ma không chồng.  
+Nào người phượng chạ loan chung,  
+Nào người tích lục tham hồng là ai?  
+Đã không kẻ đoái người hoài,  
+Sẵn đây ta kiếm một vài nén hương.  
+Gọi là gặp gỡ giữa đường,  
+Họa là người dưới suối vàng biết cho.  
+Lầm rầm khấn khứa nhỏ to,  
+Sụp ngồi vài gật trước mồ bước ra.  
+Một vùng cỏ áy bóng tà,  
+Gió hiu hiu thổi một vài bông lau.  
+Rút trâm sẵn giắt mái đầu,  
+Vạch da cây vịnh bốn câu ba vần.  
+Lại càng mê mẩn tâm thần  
+Lại càng đứng lặng tần ngần chẳng ra.  
+Lại càng ủ dột nét hoa,  
+Sầu tuôn đứt nối, châu sa vắn dài.  
 
 
 
@@ -43,78 +110,7 @@ Xuân xanh sấp xỉ tới tuần cập kê
 
 
 
-Tường đông ong bướm đi về mặc ai.
-Ngày xuân con én đưa thoi,
-Thiều quang chín chục đã ngoài sáu mươi.
-Cỏ non xanh tận chân trời,
-Cành lê trắng điểm một vài bông hoa.
-Thanh minh trong tiết tháng ba,
-Lễ là tảo mộ, hội là đạp Thanh.
-Gần xa nô nức yến anh,
-Chị em sắm sửa bộ hành chơi xuân.
-Dập dìu tài tử, giai nhân,
-Ngựa xe như nước áo quần như nêm.
-Ngổn ngang gò đống kéo lên,
-Thoi vàng vó rắc tro tiền giấy bay.
-Tà tà bóng ngả về tây,
-Chị em thơ thẩn dan tay ra về.
-Bước dần theo ngọn tiểu khê,
-Lần xem phong cảnh có bề thanh thanh.
-Nao nao dòng nước uốn quanh,
-Dịp cầu nho nhỏ cuối ghềnh bắc ngang.
-Sè sè nấm đất bên đàng,
-Dàu dàu ngọn cỏ nửa vàng nửa xanh.
-Rằng: Sao trong tiết thanh minh,
-Mà đây hương khói vắng tanh thế mà?
-Vương Quan mới dẫn gần xa:
-Đạm Tiên nàng ấy xưa là ca nhi.
-Nổi danh tài sắc một thì,
-Xôn xao ngoài cửa hiếm gì yến anh.
-Kiếp hồng nhan có mong manh,
-Nửa chừng xuân thoắt gãy cành thiên hương.
-Có người khách ở viễn phương,
-Xa nghe cũng nức tiếng nàng tìm chơi.
-Thuyền tình vừa ghé tới nơi,
-Thì đà trâm gãy bình rơi bao giờ.
-Buồng không lạnh ngắt như tờ,
-Dấu xe ngựa đã rêu lờ mờ xanh.
-Khóc than khôn xiết sự tình,
-Khéo vô duyên ấy là mình với ta.
-Đã không duyên trước chăng mà,
-Thì chi chút ước gọi là duyên sau.
-Sắm xanh nếp tử xe châu,
-Vùi nông một nấm mặc dầu cỏ hoa.
-Trải bao thỏ lặn ác tà,
-Ấy mồ vô chủ, ai mà viếng thăm!
-Lòng đâu sẵn mối thương tâm,
-Thoắt nghe Kiều đã đầm đầm châu sa.
-Đau đớn thay phận đàn bà!
-Lời rằng bạc mệnh cũng là lời chung.
-Phũ phàng chi bấy hóa công,
-Ngày xanh mòn mỏi má hồng phôi pha.
-Sống làm vợ khắp người ta,
-Khéo thay thác xuống làm ma không chồng.
-Nào người phượng chạ loan chung,
-Nào người tích lục tham hồng là ai?
-Đã không kẻ đoái người hoài,
-Sẵn đây ta kiếm một vài nén hương.
-Gọi là gặp gỡ giữa đường,
-Họa là người dưới suối vàng biết cho.
-Lầm rầm khấn khứa nhỏ to,
-Sụp ngồi vài gật trước mồ bước ra.
 
-
-
-
-
-Một vùng cỏ áy bóng tà,
-Gió hiu hiu thổi một vài bông lau.
-Rút trâm sẵn giắt mái đầu,
-Vạch da cây vịnh bốn câu ba vần.
-Lại càng mê mẩn tâm thần
-Lại càng đứng lặng tần ngần chẳng ra.
-Lại càng ủ dột nét hoa,
-Sầu tuôn đứt nối, châu sa vắn dài.
 Vân rằng: Chị cũng nực cười,
 Khéo dư nước mắt khóc người đời xưa.
 Rằng: Hồng nhan tự thuở xưa,
