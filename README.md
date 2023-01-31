@@ -14,28 +14,35 @@ Gia tư nghĩ cũng thường thường bực trung.
 Một trai con thứ rốt lòng,  
 Vương Quan là chữ, nối dòng nho gia.  
 Đầu lòng hai ả tố nga,  
-Thúy Kiều là chị, em là Thúy Vân.
-Mai cốt cách, tuyết tinh thần,
-Mỗi người một vẻ, mười phân vẹn mười.
-Vân xem trang trọng khác vời,
-Khuôn trăng đầy đặn, nét ngài nở nang.
-Hoa cười ngọc thốt đoan trang,
-Mây thua nước tóc, tuyết nhường màu da.
-Kiều càng sắc sảo, mặn mà,
-So bề tài, sắc, lại là phần hơn.
-Làn thu thủy, nét xuân sơn,
-Hoa ghen thua thắm, liễu hờn kém xanh.
-Một, hai nghiêng nước nghiêng thành,
-Sắc đành đòi một, tài đành họa hai.
-Thông minh vốn sẵn tư trời,
-Pha nghề thi họa, đủ mùi ca ngâm.
-Cung thương làu bậc ngũ âm,
-Nghề riêng ăn đứt Hồ cầm một trương.
-Khúc nhà tay lựa nên chương,
-Một thiên bạc mệnh, lại càng não nhân.
-Phong lưu rất mực hồng quần,
-Xuân xanh sấp xỉ tới tuần cập kê
-Êm đềm trướng rủ màn che,
+Thúy Kiều là chị, em là Thúy Vân.  
+Mai cốt cách, tuyết tinh thần,  
+Mỗi người một vẻ, mười phân vẹn mười.  
+Vân xem trang trọng khác vời,  
+Khuôn trăng đầy đặn, nét ngài nở nang.  
+Hoa cười ngọc thốt đoan trang,  
+Mây thua nước tóc, tuyết nhường màu da.  
+Kiều càng sắc sảo, mặn mà,  
+So bề tài, sắc, lại là phần hơn.  
+Làn thu thủy, nét xuân sơn,  
+Hoa ghen thua thắm, liễu hờn kém xanh.  
+Một, hai nghiêng nước nghiêng thành,  
+Sắc đành đòi một, tài đành họa hai.  
+Thông minh vốn sẵn tư trời,  
+Pha nghề thi họa, đủ mùi ca ngâm.  
+Cung thương làu bậc ngũ âm,  
+Nghề riêng ăn đứt Hồ cầm một trương.  
+Khúc nhà tay lựa nên chương,  
+Một thiên bạc mệnh, lại càng não nhân.  
+Phong lưu rất mực hồng quần,  
+Xuân xanh sấp xỉ tới tuần cập kê  
+Êm đềm trướng rủ màn che,  
+
+
+
+
+
+
+
 Tường đông ong bướm đi về mặc ai.
 Ngày xuân con én đưa thoi,
 Thiều quang chín chục đã ngoài sáu mươi.
@@ -95,6 +102,11 @@ Gọi là gặp gỡ giữa đường,
 Họa là người dưới suối vàng biết cho.
 Lầm rầm khấn khứa nhỏ to,
 Sụp ngồi vài gật trước mồ bước ra.
+
+
+
+
+
 Một vùng cỏ áy bóng tà,
 Gió hiu hiu thổi một vài bông lau.
 Rút trâm sẵn giắt mái đầu,
@@ -495,6 +507,10 @@ Rằng: Quen mất nết đi rồi,
 Tẻ vui thôi cũng tính trời biết sao!
 Lời vàng âm lĩnh ý cao,
 Họa dần dần bớt chút nào được không.
+
+
+
+
 Hoa hương càng tỏ thức hồng,
 Đầu mày cuối mắt càng nồng tấm yêu.
 Sóng tình dường đã xiêu xiêu,
