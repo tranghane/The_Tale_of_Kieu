@@ -1540,7 +1540,7 @@ Trách người đen bạc ra lòng trăng hoa:
 Ví bằng thú thật cùng ta,  
 Cũng dung kẻ dưới mới là lượng trên.  
 Dại chi chẳng giữ lấy nền,  
-Tốt chi mà rước tiếng ghen vào mình?
+Tốt chi mà rước tiếng ghen vào mình?  
 Lại còn bưng bít giấu quanh,  
 Làm chi những thói trẻ ranh nực cười!  
 Tính rằng cách mặt khuất lời,  
@@ -1713,7 +1713,7 @@ Dỡ đò lên trước sảnh đường,
 Khuyển ưng hai đứa nộp nàng dâng công.  
 Vực nàng tạm xuống môn phòng,  
 Hãy còn thiêm thiếp giấc nồng chưa phai.  
-Hoàng lương chợt tỉnh hồn mai,
+Hoàng lương chợt tỉnh hồn mai,  
 Cửa nhà đâu mất lâu đài nào đây?  
 Bàng hoàng giở tỉnh giở say,  
 Sảnh đường mảng tiếng đòi ngay lên hầu.  
