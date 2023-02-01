@@ -1499,91 +1499,91 @@ Rạng ra gửi đến xuân đường,
 Thúc ông cũng vội giục chàng ninh gia.  
 Tiễn đưa một chén quan hà,  
 Xuân đình thoắt đã dạo ra cao đình.  
-Sông Tần một dải xanh xanh,
-Loi thoi bờ liễu mấy cành Dương quan.
-Cầm tay dài ngắn thở than,
-Chia phôi ngừng chén hợp tan nghẹn lời.
-Nàng rằng: Non nước xa khơi,
-Sao cho trong ấm thì ngoài mới êm.
-Dễ lòa yếm thắm trôn kim,
-Làm chi bưng mắt bắt chim khó lòng!
-Đôi ta chút nghĩa đèo bòng,
-Đến nhà trước liệu nói sòng cho minh.
-Dù khi sóng gió bất tình,
-Lớn ra uy lớn tôi đành phận tôi.
-Hơn điều giấu ngược giấu xuôi.
-Lại mang những việc tày trời đến sau.
-Thương nhau xin nhớ lời nhau,
-Năm chầy cũng chẳng đi đâu mà chầy.
-Chén đưa nhớ bữa hôm nay,
-Chén mừng xin đợi ngày này năm sau!
-Người lên ngựa kẻ chia bào,
-Rừng phong thu đã nhuốm màu quan san.
-Dặm hồng bụi cuốn chinh an,
-Trông người đã khuất mấy ngàn dâu xanh.
-Người về chiếc bóng năm canh,
-Kẻ đi muôn dặm một mình xa xôi.
-Vầng trăng ai xẻ làm đôi,
-Nửa in gối chiếc, nửa soi dặm trường.
-Kể chi những nỗi dọc đường,
-Buồn trong này nỗi chủ trương ở nhà:
-Vốn dòng họ Hoạn danh gia,
-Con quan lại bộ tên là Hoạn Thư.
-Duyên đằng thuận nẻo gió đưa,
-Cùng chàng kết tóc xe tơ những ngày.
-Ở ăn thì nết cũng hay,
-Nói điều ràng buộc thì tay cũng già.
-Từ nghe vườn mới thêm hoa,
-Miệng người đã lắm tin nhà thì không.
-Lửa tâm càng dập càng nồng,
-Trách người đen bạc ra lòng trăng hoa:
-Ví bằng thú thật cùng ta,
-Cũng dung kẻ dưới mới là lượng trên.
-Dại chi chẳng giữ lấy nền,
+Sông Tần một dải xanh xanh,  
+Loi thoi bờ liễu mấy cành Dương quan.  
+Cầm tay dài ngắn thở than,  
+Chia phôi ngừng chén hợp tan nghẹn lời.  
+Nàng rằng: Non nước xa khơi,  
+Sao cho trong ấm thì ngoài mới êm.  
+Dễ lòa yếm thắm trôn kim,  
+Làm chi bưng mắt bắt chim khó lòng!  
+Đôi ta chút nghĩa đèo bòng,  
+Đến nhà trước liệu nói sòng cho minh.  
+Dù khi sóng gió bất tình,  
+Lớn ra uy lớn tôi đành phận tôi.  
+Hơn điều giấu ngược giấu xuôi.  
+Lại mang những việc tày trời đến sau.  
+Thương nhau xin nhớ lời nhau,  
+Năm chầy cũng chẳng đi đâu mà chầy.  
+Chén đưa nhớ bữa hôm nay,  
+Chén mừng xin đợi ngày này năm sau!  
+Người lên ngựa kẻ chia bào,  
+Rừng phong thu đã nhuốm màu quan san.  
+Dặm hồng bụi cuốn chinh an,  
+Trông người đã khuất mấy ngàn dâu xanh.  
+Người về chiếc bóng năm canh,  
+Kẻ đi muôn dặm một mình xa xôi.  
+Vầng trăng ai xẻ làm đôi,  
+Nửa in gối chiếc, nửa soi dặm trường.  
+Kể chi những nỗi dọc đường,  
+Buồn trong này nỗi chủ trương ở nhà:  
+Vốn dòng họ Hoạn danh gia,  
+Con quan lại bộ tên là Hoạn Thư.  
+Duyên đằng thuận nẻo gió đưa,  
+Cùng chàng kết tóc xe tơ những ngày.  
+Ở ăn thì nết cũng hay,  
+Nói điều ràng buộc thì tay cũng già.  
+Từ nghe vườn mới thêm hoa,  
+Miệng người đã lắm tin nhà thì không.  
+Lửa tâm càng dập càng nồng,  
+Trách người đen bạc ra lòng trăng hoa:  
+Ví bằng thú thật cùng ta,  
+Cũng dung kẻ dưới mới là lượng trên.  
+Dại chi chẳng giữ lấy nền,  
 Tốt chi mà rước tiếng ghen vào mình?
-Lại còn bưng bít giấu quanh,
-Làm chi những thói trẻ ranh nực cười!
-Tính rằng cách mặt khuất lời,
-Giấu ta ta cũng liệu bài giấu cho!
-Lo gì việc ấy mà lo,
-Kiến trong miệng chén có bò đi đâu?
-Làm cho nhìn chẳng được nhau,
-Làm cho đầy đọa cất đầu chẳng lên!
-Làm cho trông thấy nhãn tiền,
-Cho người thăm ván bán thuyền biết tay.
-Nỗi lòng kín chẳng ai hay,
-Ngoài tai để mặc gió bay mái ngoài.
-Tuần sau bỗng thấy hai người,
-Mách tin ý cũng liệu bài tâng công.
-Tiểu thư nổi giận đùng đùng:
-Gớm tay thêu dệt ra lòng trêu ngươi!
-Chồng tao nào phải như ai,
-Điều này hẳn miệng những người thị phi!
-Vội vàng xuống lệnh ra uy,
-Đứa thì vả miệng đứa thì bẻ răng.
-Trong ngoài kín mít như bưng.
-Nào ai còn dám nói năng một lời!
-Buồng đào khuya sớm thảnh thơi,
-Ra vào một mực nói cười như không.
-Đêm ngày lòng những dặn lòng,
-Sinh đà về đến lầu hồng xuống yên.
-Lời tan hợp nỗi hàn huyên,
-Chữ tình càng mặn chữ duyên càng nồng.
-Tẩy trần vui chén thong dong,
-Nỗi lòng ai ở trong lòng mà ra.
-Chàng về xem ý tứ nhà,
-Sự mình cũng rắp lân la giãi bày.
-Mấy phen cười nói tỉnh say,
-Tóc tơ bất động mảy may sự tình.
-Nghĩ đà bưng kín miệng bình,
-Nào ai có khảo mà mình đã xưng?
-Những là e ấp dùng dằng,
-Rút dây sợ nữa động rừng lại thôi.
-Có khi vui chuyện mua cười,
-Tiểu thư lại giở những lời đâu đâu.
-Rằng: Trong ngọc đá vàng thau,
-Mười phần ta đã tin nhau cả mười.
-Khen cho những chuyện dông dài,
+Lại còn bưng bít giấu quanh,  
+Làm chi những thói trẻ ranh nực cười!  
+Tính rằng cách mặt khuất lời,  
+Giấu ta ta cũng liệu bài giấu cho!  
+Lo gì việc ấy mà lo,  
+Kiến trong miệng chén có bò đi đâu?  
+Làm cho nhìn chẳng được nhau,  
+Làm cho đầy đọa cất đầu chẳng lên!  
+Làm cho trông thấy nhãn tiền,  
+Cho người thăm ván bán thuyền biết tay.  
+Nỗi lòng kín chẳng ai hay,  
+Ngoài tai để mặc gió bay mái ngoài.  
+Tuần sau bỗng thấy hai người,  
+Mách tin ý cũng liệu bài tâng công.  
+Tiểu thư nổi giận đùng đùng:  
+Gớm tay thêu dệt ra lòng trêu ngươi!  
+Chồng tao nào phải như ai,  
+Điều này hẳn miệng những người thị phi!  
+Vội vàng xuống lệnh ra uy,  
+Đứa thì vả miệng đứa thì bẻ răng.  
+Trong ngoài kín mít như bưng.  
+Nào ai còn dám nói năng một lời!  
+Buồng đào khuya sớm thảnh thơi,  
+Ra vào một mực nói cười như không.  
+Đêm ngày lòng những dặn lòng,  
+Sinh đà về đến lầu hồng xuống yên.  
+Lời tan hợp nỗi hàn huyên,  
+Chữ tình càng mặn chữ duyên càng nồng.  
+Tẩy trần vui chén thong dong,  
+Nỗi lòng ai ở trong lòng mà ra.  
+Chàng về xem ý tứ nhà,  
+Sự mình cũng rắp lân la giãi bày.  
+Mấy phen cười nói tỉnh say,  
+Tóc tơ bất động mảy may sự tình.  
+Nghĩ đà bưng kín miệng bình,  
+Nào ai có khảo mà mình đã xưng?  
+Những là e ấp dùng dằng,  
+Rút dây sợ nữa động rừng lại thôi.  
+Có khi vui chuyện mua cười,  
+Tiểu thư lại giở những lời đâu đâu.  
+Rằng: Trong ngọc đá vàng thau,  
+Mười phần ta đã tin nhau cả mười.  
+Khen cho những chuyện dông dài,  
 Bướm ong lại đặt những lời nọ kia.
 Thiếp dù bụng chẳng hay suy,
 Đã dơ bụng nghĩ lại bia miệng cười!
