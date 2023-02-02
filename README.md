@@ -1998,18 +1998,18 @@ Rón chân đứng nép độ đâu nữa giờ.
 Rành rành kẽ tóc chân tơ,  
 Mấy lời nghe hết đã dư tỏ tường.  
 Bao nhiêu đoạn khổ, tình thương,  
-Nỗi ông vật vã, nỗi nàng thở than.
-Ngăn tôi đứng lại một bên,
-Chán tai rồi mới bước lên trên lầu.
-Nghe thôi kinh hãi xiết đâu:
-Đàn bà thế ấy thấy âu một người!
-Ấy mới gan ấy mới tài,
-Nghĩ càng thêm nỗi sởn gai rụng rời!
-Người đâu sâu sắc nước đời,
-Mà chàng Thúc phải ra người bó tay!
-Thực tang bắt được dường này,
-Máu ghen ai cũng chau mày nghiến răng.
-Thế mà im chẳng đãi đằng,
+Nỗi ông vật vã, nỗi nàng thở than.  
+Ngăn tôi đứng lại một bên,  
+Chán tai rồi mới bước lên trên lầu.  
+Nghe thôi kinh hãi xiết đâu:  
+Đàn bà thế ấy thấy âu một người!  
+Ấy mới gan ấy mới tài,  
+Nghĩ càng thêm nỗi sởn gai rụng rời!  
+Người đâu sâu sắc nước đời,  
+Mà chàng Thúc phải ra người bó tay!  
+Thực tang bắt được dường này,  
+Máu ghen ai cũng chau mày nghiến răng.  
+Thế mà im chẳng đãi đằng,  
 Chào mời vui vẻ nói năng dịu dàng!
 Giận dầu ra dạ thế thường,
 Cười dầu mới thực khôn lường hiểm sâu!
