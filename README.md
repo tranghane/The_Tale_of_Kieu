@@ -2298,106 +2298,106 @@ Bất bình nổi trận đùng đùng sấm vang.
 Nghiêm quân tuyển tướng sẵn sàng,  
 Dưới cờ một lệnh vội vàng ruổi sao.  
 Ba quân chỉ ngọn cờ đào,  
-Đạo ra Vô Tích, đạo vào Lâm Tri,
-Mấy người phụ bạc xưa kia,
-Chiếu danh tầm nã bắt về hỏi tra.
-Lại sai lệnh tiễn truyền qua,
-Giữ giàng họ Thúc một nhà cho yên.
-Mụ quản gia, vãi Giác Duyên,
-Cũng sai lệnh tiễn đem tin rước mời.
-Thệ sư kể hết mọi lời,
-Lòng lòng cũng giận, người người chấp uy!
-Đạo trời báo phục chỉn ghê,
-Khéo thay! Một mẻ tóm về đầy nơi,
-Quân trung gươm lớn áo dài,
-Vệ trong thị lập, cơ ngoài song phi.
-Sẵn sàng tề chỉnh uy nghi,
-Bác đồng chật đất, tinh kỳ rợp sân.
-Trướng hùm mở giữa trung quân,
-Từ Công sánh với phu nhân cùng ngồi.
-Tiên nghiêm trống chửa dứt hồi
-Điểm danh trước dẫn chực ngoài cửa viên.
-Từ rằng: n, oán hai bên,
-Mặc nàng xử quyết báo đền cho minh
-Nàng rằng: Nhờ cậy uy linh,
-Hãy xin báo đáp ân tình cho phu.
-Báo ân rồi sẽ trả thù.
-Từ rằng: Việc ấy phó cho mặc nàng.
-Cho gươm mời đến Thúc lang,
-Mặt như chàm đổ, mình giường giẽ run.
-Nàng rằng: Nghĩa trọng nghìn non,
-Lâm Tri người cũ, chàng còn nhớ không?
-Sâm Thương chẳng vẹn chữ tòng,
-Tại ai, há dám phụ lòng cố nhân?
-Gấm trăm cuốn bạc nghìn cân,
-Tạ lòng dễ xứng, báo ân gọi là!
-Vợ chàng quỷ quái tinh ma,
-Phen này kẻ cắp bà già gặp nhau!
-Kiến bò miệng chén chưa lâu,
-Mưu sâu cũng trả nghĩa sâu cho vừa.
-Thúc Sinh trông mặt bấy giờ,
-Mồ hôi chàng đã như mưa ướt đầm.
-Lòng riêng mừng sợ khôn cầm,
-Sợ thay mà lại mừng thầm cho ai.
-Mụ già, sư trưởng thứ hai,
-Thoắt đưa đến trước vội mời lên trên:
-Dắt tay mở mặt cho nhìn:
-Hoa Nô kia với Trạc Tuyền cũng tôi.
-Nhớ khi lỡ bước xẩy vời,
-Non vàng chưa dễ đền bồi tấm thương.
-Nghìn vàng gọi chút lễ thường,
-Mà lòng phiếu mẫu mấy vàng cho cân?
-Hai người, trông mặt tần ngần,
-Nửa phần khiếp sợ, nửa phần mừng vui.
-Nàng rằng: Xin hãy dốn ngôi,
-Xem cho rõ mặt, biết tôi báo thù!
-Kíp truyền chư tướng hiến phù,
-Lại đem các tích phạm tù hậu tra.
-Dưới cờ, gươm tuốt nắp ra,
-Chính danh thủ phạm tên là Hoạn Thư.
-Thoạt trông nàng đã chào thưa:
-Tiểu thư cũng có bây giờ đến đây?
-Đàn bà dễ có mấy tay,
-Đời xưa mấy mặt đời này mấy gan?
-Dễ dàng là thói hồng nhan,
-Càng cay nghiệt lắm càng oan trái nhiều!
-Hoạn Thư hồn lạc phách xiêu,
-Khấu đầu dưới trướng, liệu điều kêu ca.
-Rằng: Tôi chút dạ đàn bà,
-Ghen tuông thì cũng người ta thường tình,
-Nghĩ cho khi gác viết kinh,
-Với khi khỏi cửa dứt tình chẳng theo.
-Lòng riêng riêng những kính yêu;
-Chồng chung, chưa dễ ai chiều cho ai.
-Trót lòng gây việc chông gai,
-Còn nhờ lượng bể thương bài nào chăng?
-Khen cho: Thật đã nên rằng,
-Khôn ngoan đến mực nói năng phải lời,
-Tha ra thì cũng may đời,
-Làm ra thì cũng ra người nhỏ nhen.
-Đã lòng tri quá thì nên,
-Truyền quân lệnh xuống trường tiền tha ngay.
-Tạ lòng lạy trước sân may,
-Cửa viên lại dắt một dây dẫn vào,
-Nàng rằng: Lồng lộng trời cao,
-Hại nhân, nhân hại sự nào tại ta?
-Trước là Bạc Hạnh, Bạc Bà,
-Bên là Ưng, Khuyển, bên là Sở Khanh.
-Tú Bà cùng Mã Giám Sinh,
-Các tên tội ấy đáng tình còn sao?
-Lệnh quân truyền xuống nội đao,
-Thề sao thì lại cứ sao gia hình,
-Máu rơi thịt nát tan tành,
-Ai ai trông thấy hồn kinh phách rời.
-Cho hay muôn sự tại trời,
-Phụ người, chẳng bõ khi người phụ ta!
-Mấy người bạc ác tinh ma,
-Mình làm mình chịu kêu mà ai thương.
-Ba quân đông mặt pháp trường,
-Thanh thiên, bạch nhật rõ ràng cho coi.
-Việc nàng báo phục vừa rồi,
-Giác Duyên vội vã gởi lời từ qui.
-Nàng rằng: Thiên tải nhất thì,
+Đạo ra Vô Tích, đạo vào Lâm Tri,  
+Mấy người phụ bạc xưa kia,  
+Chiếu danh tầm nã bắt về hỏi tra.  
+Lại sai lệnh tiễn truyền qua,  
+Giữ giàng họ Thúc một nhà cho yên.  
+Mụ quản gia, vãi Giác Duyên,  
+Cũng sai lệnh tiễn đem tin rước mời.  
+Thệ sư kể hết mọi lời,  
+Lòng lòng cũng giận, người người chấp uy!  
+Đạo trời báo phục chỉn ghê,  
+Khéo thay! Một mẻ tóm về đầy nơi,  
+Quân trung gươm lớn áo dài,  
+Vệ trong thị lập, cơ ngoài song phi.  
+Sẵn sàng tề chỉnh uy nghi,  
+Bác đồng chật đất, tinh kỳ rợp sân.  
+Trướng hùm mở giữa trung quân,  
+Từ Công sánh với phu nhân cùng ngồi.  
+Tiên nghiêm trống chửa dứt hồi  
+Điểm danh trước dẫn chực ngoài cửa viên.  
+Từ rằng: Ân, oán hai bên,  
+Mặc nàng xử quyết báo đền cho minh  
+Nàng rằng: Nhờ cậy uy linh,  
+Hãy xin báo đáp ân tình cho phu.  
+Báo ân rồi sẽ trả thù.  
+Từ rằng: Việc ấy phó cho mặc nàng.  
+Cho gươm mời đến Thúc lang,  
+Mặt như chàm đổ, mình giường giẽ run.  
+Nàng rằng: Nghĩa trọng nghìn non,  
+Lâm Tri người cũ, chàng còn nhớ không?  
+Sâm Thương chẳng vẹn chữ tòng,  
+Tại ai, há dám phụ lòng cố nhân?  
+Gấm trăm cuốn bạc nghìn cân,  
+Tạ lòng dễ xứng, báo ân gọi là!  
+Vợ chàng quỷ quái tinh ma,  
+Phen này kẻ cắp bà già gặp nhau!  
+Kiến bò miệng chén chưa lâu,  
+Mưu sâu cũng trả nghĩa sâu cho vừa.  
+Thúc Sinh trông mặt bấy giờ,  
+Mồ hôi chàng đã như mưa ướt đầm.  
+Lòng riêng mừng sợ khôn cầm,  
+Sợ thay mà lại mừng thầm cho ai.  
+Mụ già, sư trưởng thứ hai,  
+Thoắt đưa đến trước vội mời lên trên:  
+Dắt tay mở mặt cho nhìn:  
+Hoa Nô kia với Trạc Tuyền cũng tôi.  
+Nhớ khi lỡ bước xẩy vời,  
+Non vàng chưa dễ đền bồi tấm thương.  
+Nghìn vàng gọi chút lễ thường,  
+Mà lòng phiếu mẫu mấy vàng cho cân?  
+Hai người, trông mặt tần ngần,  
+Nửa phần khiếp sợ, nửa phần mừng vui.  
+Nàng rằng: Xin hãy dốn ngôi,  
+Xem cho rõ mặt, biết tôi báo thù!  
+Kíp truyền chư tướng hiến phù,  
+Lại đem các tích phạm tù hậu tra.  
+Dưới cờ, gươm tuốt nắp ra,  
+Chính danh thủ phạm tên là Hoạn Thư.  
+Thoạt trông nàng đã chào thưa:  
+Tiểu thư cũng có bây giờ đến đây?  
+Đàn bà dễ có mấy tay,  
+Đời xưa mấy mặt đời này mấy gan?  
+Dễ dàng là thói hồng nhan,  
+Càng cay nghiệt lắm càng oan trái nhiều!  
+Hoạn Thư hồn lạc phách xiêu,  
+Khấu đầu dưới trướng, liệu điều kêu ca.  
+Rằng: Tôi chút dạ đàn bà,  
+Ghen tuông thì cũng người ta thường tình,  
+Nghĩ cho khi gác viết kinh,  
+Với khi khỏi cửa dứt tình chẳng theo.  
+Lòng riêng riêng những kính yêu;  
+Chồng chung, chưa dễ ai chiều cho ai.  
+Trót lòng gây việc chông gai,  
+Còn nhờ lượng bể thương bài nào chăng?  
+Khen cho: Thật đã nên rằng,  
+Khôn ngoan đến mực nói năng phải lời,  
+Tha ra thì cũng may đời,  
+Làm ra thì cũng ra người nhỏ nhen.  
+Đã lòng tri quá thì nên,  
+Truyền quân lệnh xuống trường tiền tha ngay.  
+Tạ lòng lạy trước sân may,  
+Cửa viên lại dắt một dây dẫn vào,  
+Nàng rằng: Lồng lộng trời cao,  
+Hại nhân, nhân hại sự nào tại ta?  
+Trước là Bạc Hạnh, Bạc Bà,  
+Bên là Ưng, Khuyển, bên là Sở Khanh.  
+Tú Bà cùng Mã Giám Sinh,  
+Các tên tội ấy đáng tình còn sao?  
+Lệnh quân truyền xuống nội đao,  
+Thề sao thì lại cứ sao gia hình,  
+Máu rơi thịt nát tan tành,  
+Ai ai trông thấy hồn kinh phách rời.  
+Cho hay muôn sự tại trời,  
+Phụ người, chẳng bõ khi người phụ ta!  
+Mấy người bạc ác tinh ma,  
+Mình làm mình chịu kêu mà ai thương.  
+Ba quân đông mặt pháp trường,  
+Thanh thiên, bạch nhật rõ ràng cho coi.  
+Việc nàng báo phục vừa rồi,  
+Giác Duyên vội vã gởi lời từ qui.  
+Nàng rằng: Thiên tải nhất thì,  
 Cố nhân đã dễ mấy khi bàn hoàn.
 Rồi đây bèo hợp mây tan,
 Biết đâu hạc nội mây ngàn là đâu!
