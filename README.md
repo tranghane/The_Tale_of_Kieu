@@ -2010,94 +2010,94 @@ Mà chàng Thúc phải ra người bó tay!
 Thực tang bắt được dường này,  
 Máu ghen ai cũng chau mày nghiến răng.  
 Thế mà im chẳng đãi đằng,  
-Chào mời vui vẻ nói năng dịu dàng!
-Giận dầu ra dạ thế thường,
-Cười dầu mới thực khôn lường hiểm sâu!
-Thân ta ta phải lo âu,
-Miệng hùm nọc rắn ở đâu chốn này!
-Ví chăng chắp cánh cao bay,
-Rào cây lâu cũng có ngày bẻ hoa!
-Phận bèo bao quản nước sa,
-Lênh đênh đâu nữa cũng là lênh đênh.
-Chỉn e quê khách một mình,
-Tay không chưa dễ tìm vành ấm no!
-Nghĩ đi nghĩ lại quanh co,
-Phật tiền sẵn có mọi đồ kim ngân.
-Bên mình giắt để hộ thân,
-Lần nghe canh đã một phần trống ba.
-Cất mình qua ngọn tường hoa,
-Lần đường theo bóng trăng tà về tây.
-Mịt mù dặm cát đồi cây,
-Tiếng gà điếm nguyệt dấu giày cầu sương.
-Canh khuya thân gái dặm trường,
-Phần e đường xá, phần thương dãi dầu!
-Trời đông vừa rạng ngàn dâu,
-Bơ vơ nào đã biết đâu là nhà!
-Chùa đâu trông thấy nẻo xa,
-Rành rành Chiêu Ẩn Am ba chữ bài.
-Xăm xăm gõ mái cửa ngoài,
-Trụ trì nghe tiếng, rước mời vào trong.
-Thấy màu ăn mặc nâu sồng,
-Giác Duyên sư trưởng lành lòng liền thương.
-Gạn gùng ngành ngọn cho tường,
-Lạ lùng nàng hãy tìm đường nói quanh:
-Tiểu thiền quê ở Bắc Kinh,
-Qui sư, qui Phật, tu hành bấy lâu.
-Bản sư rồi cũng đến sau,
-Dạy đưa pháp bảo sang hầu sư huynh.
-Rày vâng diện hiến rành rành,
-Chuông vàng khánh bạc bên mình giở ra.
-Xem qua sư mới dạy qua:
-Phải nơi Hằng Thủy là ta hậu tình.
-Chỉ e đường sá một mình,
-Ở đây chờ đợi sư huynh ít ngày.
-Gửi thân được chốn am mây,
-Muối dưa đắp đổi tháng ngày thong dong.
-Kệ kinh câu cũ thuộc lòng,
-Hương đèn việc cũ, trai phòng quen tay.
-Sớm khuya lá bối phướn mây,
-Ngọn đèn khêu nguyệt, tiếng chày nện sương.
-Thấy nàng thông tuệ khác thường,
-Sư càng nể mặt, nàng càng vững chân.
-Cửa thuyền vừa tiết cuối xuân,
-Bóng hoa đầy đất, vẻ ngân ngang trời.
-Gió quang mây tạnh thảnh thơi,
-Có người đàn việt lên chơi cửa Già.
-Giở đồ chuông khánh xem qua,
-Khen rằng: Khéo giống của nhà Hoạn nương!
-Giác Duyên thực ý lo lường,
-Đêm thanh mới hỏi lại nàng trước sau.
-Nghĩ rằng khôn nỗi giấu mầu,
-Sự mình nàng mới gót đầu bày ngay:
-Bây giờ sự đã dường này,
-Phận hèn dù rủi, dù may, tại người.
-Giác Duyên nghe nói rụng rời,
-Nửa thương, nửa sợ, bồi hồi chẳng xong.
-Rỉ tai nàng mới giãi lòng:
-Ở đây cửa Phật là không hẹp gì;
-E chăng những sự bất kỳ,
-Để nàng cho đến thế thì cũng thương!
-Lánh xa, trước liệu tìm đường,
-Ngồi chờ nước đến, nên đường còn quê!
-Có nhà họ Bạc bên kia,
-Am mây quen lối đi về dầu hương.
-Nhắn sang, dặn hết mọi đường,
-Dọn nhà hãy tạm cho nàng trú chân.
-Những mừng được chốn an thân,
-Vội vàng nào kịp tính gần tính xa.
-Nào ngờ cũng tổ bợm già,
-Bạc bà học với Tú Bà đồng môn!
-Thấy nàng mặt phấn tươi son,
-Mừng thầm được mối bán buôn có lời.
-Hư không đặt để nên lời,
-Nàng đà nhớn nhác rụng rời lắm phen.
-Mụ càng xua đuổi cho liền,
-Lấy lời hung hiểm ép duyên Châu Trần.
-Rằng: Nàng muôn dặm một thân,
-Lại mang lấy tiếng dữ gần, lành xa.
-Khéo oan gia, của phá gia,
-Còn ai dám chứa vào nhà nữa đây!
-Kíp toan kiếm chốn xe dây,
+Chào mời vui vẻ nói năng dịu dàng!  
+Giận dầu ra dạ thế thường,  
+Cười dầu mới thực khôn lường hiểm sâu!  
+Thân ta ta phải lo âu,  
+Miệng hùm nọc rắn ở đâu chốn này!  
+Ví chăng chắp cánh cao bay,  
+Rào cây lâu cũng có ngày bẻ hoa!  
+Phận bèo bao quản nước sa,  
+Lênh đênh đâu nữa cũng là lênh đênh.  
+Chỉn e quê khách một mình,  
+Tay không chưa dễ tìm vành ấm no!  
+Nghĩ đi nghĩ lại quanh co,  
+Phật tiền sẵn có mọi đồ kim ngân.  
+Bên mình giắt để hộ thân,  
+Lần nghe canh đã một phần trống ba.  
+Cất mình qua ngọn tường hoa,  
+Lần đường theo bóng trăng tà về tây.  
+Mịt mù dặm cát đồi cây,  
+Tiếng gà điếm nguyệt dấu giày cầu sương.  
+Canh khuya thân gái dặm trường,  
+Phần e đường xá, phần thương dãi dầu!  
+Trời đông vừa rạng ngàn dâu,  
+Bơ vơ nào đã biết đâu là nhà!  
+Chùa đâu trông thấy nẻo xa,  
+Rành rành Chiêu Ẩn Am ba chữ bài.  
+Xăm xăm gõ mái cửa ngoài,  
+Trụ trì nghe tiếng, rước mời vào trong.  
+Thấy màu ăn mặc nâu sồng,  
+Giác Duyên sư trưởng lành lòng liền thương.  
+Gạn gùng ngành ngọn cho tường,  
+Lạ lùng nàng hãy tìm đường nói quanh:  
+Tiểu thiền quê ở Bắc Kinh,  
+Qui sư, qui Phật, tu hành bấy lâu.  
+Bản sư rồi cũng đến sau,  
+Dạy đưa pháp bảo sang hầu sư huynh.  
+Rày vâng diện hiến rành rành,  
+Chuông vàng khánh bạc bên mình giở ra.  
+Xem qua sư mới dạy qua:  
+Phải nơi Hằng Thủy là ta hậu tình.  
+Chỉ e đường sá một mình,  
+Ở đây chờ đợi sư huynh ít ngày.  
+Gửi thân được chốn am mây,  
+Muối dưa đắp đổi tháng ngày thong dong.  
+Kệ kinh câu cũ thuộc lòng,  
+Hương đèn việc cũ, trai phòng quen tay.  
+Sớm khuya lá bối phướn mây,  
+Ngọn đèn khêu nguyệt, tiếng chày nện sương.  
+Thấy nàng thông tuệ khác thường,  
+Sư càng nể mặt, nàng càng vững chân.  
+Cửa thuyền vừa tiết cuối xuân,  
+Bóng hoa đầy đất, vẻ ngân ngang trời.  
+Gió quang mây tạnh thảnh thơi,  
+Có người đàn việt lên chơi cửa Già.  
+Giở đồ chuông khánh xem qua,  
+Khen rằng: Khéo giống của nhà Hoạn nương!  
+Giác Duyên thực ý lo lường,  
+Đêm thanh mới hỏi lại nàng trước sau.  
+Nghĩ rằng khôn nỗi giấu mầu,  
+Sự mình nàng mới gót đầu bày ngay:  
+Bây giờ sự đã dường này,  
+Phận hèn dù rủi, dù may, tại người.  
+Giác Duyên nghe nói rụng rời,  
+Nửa thương, nửa sợ, bồi hồi chẳng xong.  
+Rỉ tai nàng mới giãi lòng:  
+Ở đây cửa Phật là không hẹp gì;  
+E chăng những sự bất kỳ,  
+Để nàng cho đến thế thì cũng thương!  
+Lánh xa, trước liệu tìm đường,  
+Ngồi chờ nước đến, nên đường còn quê!  
+Có nhà họ Bạc bên kia,  
+Am mây quen lối đi về dầu hương.  
+Nhắn sang, dặn hết mọi đường,  
+Dọn nhà hãy tạm cho nàng trú chân.  
+Những mừng được chốn an thân,  
+Vội vàng nào kịp tính gần tính xa.  
+Nào ngờ cũng tổ bợm già,  
+Bạc bà học với Tú Bà đồng môn!  
+Thấy nàng mặt phấn tươi son,  
+Mừng thầm được mối bán buôn có lời.  
+Hư không đặt để nên lời,  
+Nàng đà nhớn nhác rụng rời lắm phen.  
+Mụ càng xua đuổi cho liền,  
+Lấy lời hung hiểm ép duyên Châu Trần.  
+Rằng: Nàng muôn dặm một thân,  
+Lại mang lấy tiếng dữ gần, lành xa.  
+Khéo oan gia, của phá gia,  
+Còn ai dám chứa vào nhà nữa đây!  
+Kíp toan kiếm chốn xe dây,  
 Không dưng chưa dễ mà bay đường trời!
 Nơi gần thì chẳng tiện nơi,
 Nơi xa thì chẳng có người nào xa.
