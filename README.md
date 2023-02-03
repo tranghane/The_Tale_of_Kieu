@@ -1,4 +1,3 @@
-
 Trăm năm trong cõi người ta,  
 Chữ tài chữ mệnh khéo là ghét nhau.  
 Trải qua một cuộc bể dâu,  
