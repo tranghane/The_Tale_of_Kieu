@@ -2897,107 +2897,107 @@ Tơ duyên sau lại xe về Thúc lang.
 Phải tay vợ cả phũ phàng,  
 Bắt về Vô tích toan đường bẻ hoa.  
 Rứt mình nàng phải trốn ra,  
-Chẳng may lại gặp một nhà Bạc kia.
-Thoắt buôn về thoắt bán đi,
-Mây trôi bèo nổi thiếu gì là nơi!
-Bỗng đâu lại gặp một người,
-Hơn đời trí dũng nghiêng trời uy linh.
-Trong tay mười vạn tinh binh,
-Kéo về đóng chật một thành Lâm truy.
-Tóc tơ các tích mọi khi,
-Oán thì trả oán ân thì trả ân.
-Đã nên có nghĩa có nhân,
-Trước sau trọn vẹn xa gần ngợi khen.
-Chưa từng được họ được tên,
-Sự này hỏi Thúc Sinh viên mới tường.
-Nghe lời đô nói rõ ràng,
-Tức thì đưa thiếp mời chàng Thúc Sinh.
-Nỗi nàng hỏi hết phân minh,
-Chồng con đâu tá tính danh là gì?
-Thúc rằng: Gặp buổi loạn ly,
-Trong quân tôi hỏi thiếu gì tóc tơ.
-Đại vương tên Hải họ Từ,
-Đánh quen trăm trận sức dư muôn người
-Gặp nàng khi ở châu Thai,
-Lạ gì quốc sắc thiên tài phải duyên.
-Vẫy vùng trong bấy nhiêu niên,
-Làm nên động địa kinh thiên đùng đùng.
-Đại quân đồn đóng cõi đông,
-Về sau chẳng biết vân mồng làm sao.
-Nghe tường ngành ngọn tiêu hao,
-Lòng riêng chàng luống lao đao thẫn thờ.
-Xót thay chiếc lá bơ vơ,
-Kiếp trần biết giũ bao giờ cho xong?
-Hoa trôi nước chảy xuôi dòng,
-Xót thân chìm nỗi đau lòng hợp tan!
-Lời xưa đã lỗi muôn vàn,
-Mảnh hương còn đó phím đàn còn đây,
-Đàn cầm khéo ngẩn ngơ dây,
-Lửa hương biết có kiếp này nữa thôi?
-Bình bồng còn chút xa xôi,
-Đỉnh chung sao nỡ ăn ngồi cho an!
-Rắp mong treo ấn từ quan,
-Mấy sông cũng lội mấy ngàn cũng pha.
-Dấn mình trong án can qua,
-Vào sinh ra tử họa là thấy nhau.
-Nghĩ điều trời thẳm vực sâu,
-Bóng chim tăm cá biết đâu mà nhìn!
-Những là nấn ná đợi tin,
-Nắng mưa biết đã mấy phen đổi dời
-Năm mây bỗng thấy chiếu trời,
-Khâm ban sắc chỉ đến nơi rành rành.
-Kim thì cải nhậm Nam Bình,
-Chàng Vương cũng cải nhậm thành Châu dương.
-Sắm xanh xe ngựa vội vàng,
-Hai nhà cùng thuận một đường phó quan.
-Xảy nghe thế giặc đã tan,
-Sóng êm Phúc Kiến, lửa tàn Chiết Giang.
-Được tin Kim mới rủ Vương,
-Tiện đường cùng lại tìm nàng sau xưa.
-Hàng Châu đến đó bây giờ,
-Thật tin hỏi được tóc tơ rành rành.
-Rằng: Ngày hôm nọ giao binh,
-Thất cơ Từ đã thu linh trận tiền.
-Nàng Kiều công cả chẳng đền,
-Lệnh quan lại bắt ép duyên thổ tù.
-Nàng đà gieo ngọc trầm châu,
-Sông Tiền Đường đó ấy mồ hồng nhan!
-Thương ôi! Không hợp mà tan,
-Một nhà vinh hiển riêng oan một nàng!
-Chiêu hồn thiết vị lễ thường,
-Giải oan lập một đàn tràng bên sông.
-Ngọn triều non bạc trùng trùng,
-Vời trông còn tưởng cánh hồng lúc gieo.
-Tình thâm bể thảm lạ điều,
-Nào hồn tinh vệ biết theo chốn nào?
-Cơ duyên đâu bỗng lạ sao,
-Giác Duyên đâu bỗng tìm vào đến nơi.
-Trông lên linh vị chữ bài,
-Thất kinh mới hỏi: Những người đâu ta?
-Với nàng thân thích gần xa,
-Người còn sao bỗng làm ma khóc người?
-Nghe tin ngơ ngác rụng rời,
-Xúm quanh kể lể rộn lời hỏi tra:
-Này chồng này mẹ này cha,
-Này là em ruột này là em dâu.
-Thật tin nghe đã bấy lâu,
-Pháp sư dạy thế sự đâu lạ thường!
-Sư rằng: Nhân quả với nàng,
-Lâm truy buổi trước Tiền Đường buổi sau.
-Khi nàng gieo ngọc trầm châu,
-Đón nhau tôi đã gặp nhau rước về,
-Cùng nhau nương cửa bồ đề,
-Thảo am đó cũng gần kề chẳng xa.
-Phật tiền ngày bạc lân la,
-Đăm đăm nàng cũng nhớ nhà khôn khuây.
-Nghe tin nở mặt nở mày,
-Mừng nào lại quá mừng này nữa chăng?
-Từ phen chiếc lá lìa rừng,
-Thăm tìm luống những liệu chừng nước mây.
-Rõ ràng hoa rụng hương bay,
-Kiếp sau họa thấy kiếp này hẳn thôi.
-Minh dương đôi ngả chắc rồi,
-Cõi trần mà lại thấy người cửu nguyên!
+Chẳng may lại gặp một nhà Bạc kia.  
+Thoắt buôn về thoắt bán đi,  
+Mây trôi bèo nổi thiếu gì là nơi!  
+Bỗng đâu lại gặp một người,  
+Hơn đời trí dũng nghiêng trời uy linh.  
+Trong tay mười vạn tinh binh,  
+Kéo về đóng chật một thành Lâm truy.  
+Tóc tơ các tích mọi khi,  
+Oán thì trả oán ân thì trả ân.  
+Đã nên có nghĩa có nhân,  
+Trước sau trọn vẹn xa gần ngợi khen.  
+Chưa từng được họ được tên,  
+Sự này hỏi Thúc Sinh viên mới tường.  
+Nghe lời đô nói rõ ràng,  
+Tức thì đưa thiếp mời chàng Thúc Sinh.  
+Nỗi nàng hỏi hết phân minh,  
+Chồng con đâu tá tính danh là gì?  
+Thúc rằng: Gặp buổi loạn ly,  
+Trong quân tôi hỏi thiếu gì tóc tơ.  
+Đại vương tên Hải họ Từ,  
+Đánh quen trăm trận sức dư muôn người  
+Gặp nàng khi ở châu Thai,  
+Lạ gì quốc sắc thiên tài phải duyên.  
+Vẫy vùng trong bấy nhiêu niên,  
+Làm nên động địa kinh thiên đùng đùng.  
+Đại quân đồn đóng cõi đông,  
+Về sau chẳng biết vân mồng làm sao.  
+Nghe tường ngành ngọn tiêu hao,  
+Lòng riêng chàng luống lao đao thẫn thờ.  
+Xót thay chiếc lá bơ vơ,  
+Kiếp trần biết giũ bao giờ cho xong?  
+Hoa trôi nước chảy xuôi dòng,  
+Xót thân chìm nỗi đau lòng hợp tan!  
+Lời xưa đã lỗi muôn vàn,  
+Mảnh hương còn đó phím đàn còn đây,  
+Đàn cầm khéo ngẩn ngơ dây,  
+Lửa hương biết có kiếp này nữa thôi?  
+Bình bồng còn chút xa xôi,  
+Đỉnh chung sao nỡ ăn ngồi cho an!  
+Rắp mong treo ấn từ quan,  
+Mấy sông cũng lội mấy ngàn cũng pha.  
+Dấn mình trong án can qua,  
+Vào sinh ra tử họa là thấy nhau.  
+Nghĩ điều trời thẳm vực sâu,  
+Bóng chim tăm cá biết đâu mà nhìn!  
+Những là nấn ná đợi tin,  
+Nắng mưa biết đã mấy phen đổi dời  
+Năm mây bỗng thấy chiếu trời,  
+Khâm ban sắc chỉ đến nơi rành rành.  
+Kim thì cải nhậm Nam Bình,  
+Chàng Vương cũng cải nhậm thành Châu dương.  
+Sắm xanh xe ngựa vội vàng,  
+Hai nhà cùng thuận một đường phó quan.  
+Xảy nghe thế giặc đã tan,  
+Sóng êm Phúc Kiến, lửa tàn Chiết Giang.  
+Được tin Kim mới rủ Vương,  
+Tiện đường cùng lại tìm nàng sau xưa.  
+Hàng Châu đến đó bây giờ,  
+Thật tin hỏi được tóc tơ rành rành.  
+Rằng: Ngày hôm nọ giao binh,  
+Thất cơ Từ đã thu linh trận tiền.  
+Nàng Kiều công cả chẳng đền,  
+Lệnh quan lại bắt ép duyên thổ tù.  
+Nàng đà gieo ngọc trầm châu,  
+Sông Tiền Đường đó ấy mồ hồng nhan!  
+Thương ôi! Không hợp mà tan,  
+Một nhà vinh hiển riêng oan một nàng!  
+Chiêu hồn thiết vị lễ thường,  
+Giải oan lập một đàn tràng bên sông.  
+Ngọn triều non bạc trùng trùng,  
+Vời trông còn tưởng cánh hồng lúc gieo.  
+Tình thâm bể thảm lạ điều,  
+Nào hồn tinh vệ biết theo chốn nào?  
+Cơ duyên đâu bỗng lạ sao,  
+Giác Duyên đâu bỗng tìm vào đến nơi.  
+Trông lên linh vị chữ bài,  
+Thất kinh mới hỏi: Những người đâu ta?  
+Với nàng thân thích gần xa,  
+Người còn sao bỗng làm ma khóc người?  
+Nghe tin ngơ ngác rụng rời,  
+Xúm quanh kể lể rộn lời hỏi tra:  
+Này chồng này mẹ này cha,  
+Này là em ruột này là em dâu.  
+Thật tin nghe đã bấy lâu,  
+Pháp sư dạy thế sự đâu lạ thường!  
+Sư rằng: Nhân quả với nàng,  
+Lâm truy buổi trước Tiền Đường buổi sau.  
+Khi nàng gieo ngọc trầm châu,  
+Đón nhau tôi đã gặp nhau rước về,  
+Cùng nhau nương cửa bồ đề,  
+Thảo am đó cũng gần kề chẳng xa.  
+Phật tiền ngày bạc lân la,  
+Đăm đăm nàng cũng nhớ nhà khôn khuây.  
+Nghe tin nở mặt nở mày,  
+Mừng nào lại quá mừng này nữa chăng?  
+Từ phen chiếc lá lìa rừng,  
+Thăm tìm luống những liệu chừng nước mây.  
+Rõ ràng hoa rụng hương bay,  
+Kiếp sau họa thấy kiếp này hẳn thôi.  
+Minh dương đôi ngả chắc rồi,  
+Cõi trần mà lại thấy người cửu nguyên!  
 Cùng nhau lạy tạ Giác Duyên,
 Bộ hành một lũ theo liền một khi.
 Bẻ lau vạch cỏ tìm đi,
