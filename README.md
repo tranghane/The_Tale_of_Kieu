@@ -3205,50 +3205,50 @@ Trong sao châu nhỏ duềnh quyên,
 Lọt tai nghe suốt năm cung,  
 Tiếng nào là chẳng não nùng xôn xao.  
 Chàng rằng: Phổ ấy tay nào,  
-Xưa sao sầu thảm nay sao vui vầy?
-Tẻ vui bởi tại lòng này,
-Hay là khổ tận đến ngày cam lai?
-Nàng rằng: Ví chút nghề chơi,
-Đoạn trường tiếng ấy hại người bấy lâu!
-Một phen tri kỷ cùng nhau,
-Cuốn dây từ đấy về sau cũng chừa.
-Chuyện trò chưa cạn tóc tơ,
-Gà đà gáy sáng trời vừa rạng đông.
-Tình riêng chàng lại nói sòng,
-Một nhà ai cũng lạ lùng khen lao.
-Cho hay thục nữ chí cao,
-Phải người tối mận sớm đào như ai?
-Hai tình vẹn vẽ hòa hai,
-Chẳng trong chăn gối cũng ngoài cầm thơ.
-Khi chén rượu khi cuộc cờ,
-Khi xem hoa nở khi chờ trăng lên.
-Ba sinh đã phỉ mười nguyền,
-Duyên đôi lứa cũng là duyên bạn bầy.
-Nhớ lời lập một am mây,
-Khiến người thân thích rước thầy Giác Duyên.
-Đến nơi đóng cửa cài then,
-Rêu trùm kẻ ngạch cỏ len mái nhà,
-Sư đà hái thuốc phương xa,
-Mây bay hạc lánh biết là tìm đâu?
-Nặng vì chút nghĩa bấy lâu,
-Trên am cứ giữ hương dầu hôm mai.
-Một nhà phúc lộc gồm hai,
-Ngàn năm dằng dặc quan giai lần lần.
-Thừa gia chẳng hết nàng Vân,
-Một cây cù mộc một sân quế hòe.
-Phong lưu phú quý ai bì,
-Vườn xuân một cửa, để bia muôn đời.
-Ngẫm hay muôn sự tại trời,
-Trời kia đã bắt làm người có thân.
-Bắt phong trần phải phong trần,
-Cho thanh cao mới được phần thanh cao.
-Có đâu thiên vị người nào,
-Chữ tài chữ mệnh dồi dào cả hai,
-Có tài mà cậy chi tài,
-Chữ tài liền với chữ tai một vần.
-Đã mang lấy nghiệp vào thân,
-Cũng đừng trách lẫn trời gần trời xa.
-Thiện căn ở tại lòng ta,
-Chữ tâm kia mới bằng ba chữ tài.
-Lời quê chắp nhặt dông dài,
-Mua vui cũng được một vài trống canh.
+Xưa sao sầu thảm nay sao vui vầy?  
+Tẻ vui bởi tại lòng này,  
+Hay là khổ tận đến ngày cam lai?  
+Nàng rằng: Ví chút nghề chơi,  
+Đoạn trường tiếng ấy hại người bấy lâu!  
+Một phen tri kỷ cùng nhau,  
+Cuốn dây từ đấy về sau cũng chừa.  
+Chuyện trò chưa cạn tóc tơ,  
+Gà đà gáy sáng trời vừa rạng đông.  
+Tình riêng chàng lại nói sòng,  
+Một nhà ai cũng lạ lùng khen lao.  
+Cho hay thục nữ chí cao,  
+Phải người tối mận sớm đào như ai?  
+Hai tình vẹn vẽ hòa hai,  
+Chẳng trong chăn gối cũng ngoài cầm thơ.  
+Khi chén rượu khi cuộc cờ,  
+Khi xem hoa nở khi chờ trăng lên.  
+Ba sinh đã phỉ mười nguyền,  
+Duyên đôi lứa cũng là duyên bạn bầy.  
+Nhớ lời lập một am mây,  
+Khiến người thân thích rước thầy Giác Duyên.  
+Đến nơi đóng cửa cài then,  
+Rêu trùm kẻ ngạch cỏ len mái nhà,  
+Sư đà hái thuốc phương xa,  
+Mây bay hạc lánh biết là tìm đâu?  
+Nặng vì chút nghĩa bấy lâu,  
+Trên am cứ giữ hương dầu hôm mai.  
+Một nhà phúc lộc gồm hai,  
+Ngàn năm dằng dặc quan giai lần lần.  
+Thừa gia chẳng hết nàng Vân,  
+Một cây cù mộc một sân quế hòe.  
+Phong lưu phú quý ai bì,  
+Vườn xuân một cửa, để bia muôn đời.  
+Ngẫm hay muôn sự tại trời,  
+Trời kia đã bắt làm người có thân.  
+Bắt phong trần phải phong trần,  
+Cho thanh cao mới được phần thanh cao.  
+Có đâu thiên vị người nào,  
+Chữ tài chữ mệnh dồi dào cả hai,  
+Có tài mà cậy chi tài,  
+Chữ tài liền với chữ tai một vần.  
+Đã mang lấy nghiệp vào thân,  
+Cũng đừng trách lẫn trời gần trời xa.  
+Thiện căn ở tại lòng ta,  
+Chữ tâm kia mới bằng ba chữ tài.  
+Lời quê chắp nhặt dông dài,  
+Mua vui cũng được một vài trống canh.  
