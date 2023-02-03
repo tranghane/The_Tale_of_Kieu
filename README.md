@@ -2998,213 +2998,213 @@ Rõ ràng hoa rụng hương bay,
 Kiếp sau họa thấy kiếp này hẳn thôi.  
 Minh dương đôi ngả chắc rồi,  
 Cõi trần mà lại thấy người cửu nguyên!  
-Cùng nhau lạy tạ Giác Duyên,
-Bộ hành một lũ theo liền một khi.
-Bẻ lau vạch cỏ tìm đi,
-Tình thâm luống hãy hồ nghi nửa phần.
-Quanh co theo dải giang tân,
-Khỏi rừng lau đã tới sân Phật đường.
-Giác Duyên lên tiếng gọi nàng,
-Buồng trong vội dạo sen vàng bước ra.
-Trông xem đủ mặt một nhà:
-Xuân già còn khỏe huyên già còn tươi.
-Hai em phương trưởng hòa hai,
-Nọ chàng Kim đó là người ngày xưa!
-Tưởng bây giờ là bao giờ,
-Rõ ràng mở mắt còn ngờ chiêm bao!
-Giọt châu thánh thót quẹn bào,
-Mừng mừng tủi tủi xiết bao là tình!
-Huyên già dưới gối gieo mình,
-Khóc than mình kể sự tình đầu đuôi:
-Từ con lưu lạc quê người,
-Bèo trôi sóng vỗ chốc mười lăm năm!
-Tính rằng sông nước cát lầm,
-Kiếp này ai lại còn cầm gặp đây!
-Ông bà trông mặt cầm tay,
-Dung quang chẳng khác chi ngày bước ra.
-Bấy chầy dãi nguyệt dầu hoa,
-Mười phần xuân có gầy ba bốn phần.
-Nỗi mừng biết lấy chi cân?
-Lời tan hợp chuyện xa gần thiếu đâu!
-Hai em hỏi trước han sau,
-Đứng trông chàng cũng trở sầu làm tươi.
-Quây nhau lạy trước Phật đài,
-Tái sinh trần tạ lòng người từ bi.
-Kiệu hoa giục giã tức thì,
-Vương ông dạy rước cùng về một nơi.
-Nàng rằng: Chút phận hoa rơi,
-Nửa đời nếm trải mọi mùi đắng cay.
-Tính rằng mặt nước chân mây,
-Lòng nào còn tưởng có rày nữa không?
-Được rày tái thế tương phùng.
-Khát khao đã thỏa tấm lòng lâu nay!
-Đã đem mình bỏ am mây,
-Tuổi này gởi với cỏ cây cũng vừa
-Mùi thiền đã bén muối dưa,
-Màu thiền ăn mặc đã ưa nâu sồng.
-Sự đời đã tắt lửa lòng,
-Còn chen vào chốn bụi hồng làm chi!
-Dở dang nào có hay gì,
-Đã tu tu trót quá thì thì thôi!
-Trùng sinh ân nặng bể trời,
-Lòng nào nỡ dứt nghĩa người ra đi?
-Ông rằng: Bỉ thử nhất thì,
-Tu hành thì cũng phải khi tòng quyền.
-Phải điều cầu Phật cầu Tiên,
-Tình kia hiếu nọ ai đền cho đây?
-Độ sinh nhờ đức cao dày,
-Lập am rồi sẽ rước thầy ở chung.
-Nghe lời nàng cũng chiều lòng,
-Giã sư giã cảnh đều cùng bước ra.
-Một nhà về đến quan nha,
-Đoàn viên vội mở tiệc hoa vui vầy.
-Tàng tàng chén cúc dở say,
-Đứng lên Vân mới giãi bày một hai.
-Rằng: Trong tác hợp cơ trời.
-Hai bên gặp gỡ một lời kết giao.
-Gặp cơn bình địa ba đào,
-Vậy đem duyên chị buộc vào cho em.
-Cũng là phận cải duyên kim,
-Cũng là máu chảy ruột mềm chớ sao?
-Những là rày ước mai ao,
-Mười lăm năm ấy biết bao nhiêu tình!
-Bây giờ gương vỡ lại lành,
-Khuôn thiêng lừa lọc đã dành có nơi.
-Còn duyên may lại còn người,
-Còn vầng trăng bạc còn lời nguyền xưa.
-Quả mai ba bảy đương vừa,
-Đào non sớm liệu xe tơ kịp thì.
-Dứt lời nàng vội gạt đi:
-Sự muôn năm cũ kể chi bây giờ?
-Một lời tuy có ước xưa,
-Xét mình dãi gió dầu mưa đã nhiều.
-Nói càng hổ thẹn trăm chiều,
-Thà cho ngọn nước thủy triều chảy xuôi!
-Chàng rằng: Nói cũng lạ đời,
-Dẫu lòng kia vậy còn lời ấy sao?
-Một lời đã trót thâm giao,
-Dưới dày có đất trên cao có trời!
-Dẫu rằng vật đổi sao dời,
-Tử sinh phải giữ lấy lời tử sinh!
-Duyên kia có phụ chi tình,
-Mà toan sẻ gánh chung tình làm hai?
-Nàng rằng: Gia thất duyên hài,
-Chút lòng ân ái ai ai cũng lòng.
-Nghĩ rằng trong đạo vợ chồng,
-Hoa thơm phong nhị trăng vòng tròn gương.
-Chữ trinh đáng giá nghìn vàng,
-Đuốc hoa chẳng thẹn với chàng mai xưa.
-Thiếp từ ngộ biến đến giờ.
-Ong qua bướm lại đã thừa xấu xa.
-Bấy chầy gió táp mưa sa.
-Mấy trăng cũng khuyết mấy hoa cũng tàn.
-Còn chi là cái hồng nhan,
-Đã xong thân thế còn toan nỗi nào?
-Nghĩ mình chẳng hổ mình sao,
-Dám đem trần cấu dự vào bố kinh!
-Đã hay chàng nặng vì tình,
-Trông hoa đèn chẳng thẹn mình lắm ru!
-Từ rày khép cửa phòng thu,
-Chẳng tu thì cũng như tu mới là!
-Chàng dù nghĩ đến tình xa,
-Đem tình cầm sắt đổi ra cầm cờ.
-Nói chi kết tóc xe tơ,
-Đã buồn cả ruột mà dơ cả đời!
-Chàng rằng: Khéo nói nên lời,
-Mà trong lẽ phải có người có ta!
-Xưa nay trong đạo đàn bà,
-Chữ trinh kia cũng có ba bảy đường,
-Có khi biến có khi thường,
-Có quyền nào phải một đường chấp kinh.
-Như nàng lấy hiếu làm trinh,
-Bụi nào cho đục được mình ấy vay?
-Trời còn để có hôm nay,
-Tan sương đầu ngõ vén mây giữa trời.
-Hoa tàn mà lại thêm tươi,
-Trăng tàn mà lại hơn mười rằm xưa.
-Có điều chi nữa mà ngờ,
-Khách qua đường để hững hờ chàng Tiêu!
-Nghe chàng nói đã hết điều,
-Hai thân thì cũng quyết theo một bài.
-Hết lời khôn lẽ chối lời,
-Cúi đầu nàng những vắn dài thở than.
-Nhà vừa mở tiệc đoàn viên,
-Hoa soi ngọn đuốc hồng chen bức là.
-Cùng nhau giao bái một nhà,
-Lễ đà đủ lễ đôi đà xứng đôi.
-Động phòng dìu dặt chén mồi,
-Bâng khuâng duyên mới ngậm ngùi tình xưa.
-Những từ sen ngó đào tơ,
-Mười lăm năm mới bây giờ là đây!
-Tình duyên ấy hợp tan này,
-Bi hoan mấy nỗi đêm chầy trăng cao.
-Canh khuya bức gấm rủ thao,
-Dưới đèn tỏ rạng má đào thêm xuân.
-Tình nhân lại gặp tình nhân,
-Hoa xưa ong cũ mấy phân chung tình.
-Nàng rằng: Phận thiếp đã đành,
-Có làm chi nữa cái mình bỏ đi!
-Nghĩ chàng nghĩa cũ tình ghi,
-Chiều lòng gọi có xướng tùy mảy may.
-Riêng lòng đã thẹn lắm thay,
-Cũng đà mặt dạn mày dày khó coi!
-Những như âu yếm vành ngoài,
-Còn toan mở mặt với người cho qua.
-Lại như những thói người ta,
-Vớt hương dưới đất bẻ hoa cuối mùa.
-Khéo là giở nhuốc bày trò,
-Còn tình đâu nữa là thù đấy thôi!
-Người yêu ta xấu với người,
-Yêu nhau thì lại bằng mười phụ nhau!
-Cửa nhà dù tính về sau,
-Thì còn em đó lọ cầu chị đây.
-Chữ trinh còn một chút này,
-Chẳng cầm cho vững lại giày cho tan!
-Còn nhiều ân ái chan chan,
-Hay gì vầy cánh hoa tàn mà chơi?
-Chàng rằng: Gắn bó một lời,
-Bỗng không cá nước chim trời lỡ nhau.
-Xót người lưu lạc bấy lâu,
-Tưởng thề thốt nặng nên đau đớn nhiều!
-Thương nhau sinh tử đã liều,
-Gặp nhau còn chút bấy nhiêu là tình.
-Chừng xuân tơ liễu còn xanh,
-Nghĩ rằng chưa thoát khỏi vành ái ân.
-Gương trong chẳng chút bụi trần,
-Một lời quyết hẳn muôn phần kính thêm!
-Bấy lâu đáy bể mò kim,
-Là nhiều vàng đá phải tìm trăng hoa?
-Ai ngờ lại họp một nhà,
-Lọ là chăn gối mới ra sắt cầm!
-Nghe lời sửa áo cài trâm,
-Khấu đầu lạy tạ cao thâm nghìn trùng:
-Thân tàn gạn đục khơi trong,
-Là nhờ quân tử khác lòng người ta.
-Mấy lời tâm phúc ruột rà,
-Tương tri dường ấy mới là tương tri!
-Chở che đùm bọc thiếu chi,
-Trăm năm danh tiết cũng vì đêm nay!
-Thoắt thôi tay lại cầm tay,
-Càng yêu vì nết càng say vì tình.
-Thêm nến giá nối hương bình,
-Cùng nhau lại chuốc chén quỳnh giao hoan.
-Tình xưa lai láng khôn hàn,
-Thong dong lại hỏi ngón đàn ngày xưa.
-Nàng rằng: Vì mấy đường tơ,
-Lầm người cho đến bây giờ mới thôi!
-Ăn năn thì sự đã rồi!
-Nể lòng người cũ vâng lời một phen.
-Phím đàn dìu dặt tay tiên,
-Khói trầm cao thấp tiếng huyền gần xa.
-Khúc đâu đầm ấm dương hòa,
-Ấy là hồ điệp hay là Trang sinh.
-Khúc đâu êm ái xuân tình,
-Ấy hồn Thục đế hay mình đỗ quyên?
-Trong sao châu nhỏ duềnh quyên,
-Ấm sao hạt ngọc Lam điền mới đông!
-Lọt tai nghe suốt năm cung,
-Tiếng nào là chẳng não nùng xôn xao.
-Chàng rằng: Phổ ấy tay nào,
+Cùng nhau lạy tạ Giác Duyên,  
+Bộ hành một lũ theo liền một khi.  
+Bẻ lau vạch cỏ tìm đi,  
+Tình thâm luống hãy hồ nghi nửa phần.  
+Quanh co theo dải giang tân,  
+Khỏi rừng lau đã tới sân Phật đường.  
+Giác Duyên lên tiếng gọi nàng,  
+Buồng trong vội dạo sen vàng bước ra.  
+Trông xem đủ mặt một nhà:  
+Xuân già còn khỏe huyên già còn tươi.  
+Hai em phương trưởng hòa hai,  
+Nọ chàng Kim đó là người ngày xưa!  
+Tưởng bây giờ là bao giờ,  
+Rõ ràng mở mắt còn ngờ chiêm bao!  
+Giọt châu thánh thót quẹn bào,  
+Mừng mừng tủi tủi xiết bao là tình!  
+Huyên già dưới gối gieo mình,  
+Khóc than mình kể sự tình đầu đuôi:  
+Từ con lưu lạc quê người,  
+Bèo trôi sóng vỗ chốc mười lăm năm!  
+Tính rằng sông nước cát lầm,  
+Kiếp này ai lại còn cầm gặp đây!  
+Ông bà trông mặt cầm tay,  
+Dung quang chẳng khác chi ngày bước ra.  
+Bấy chầy dãi nguyệt dầu hoa,  
+Mười phần xuân có gầy ba bốn phần.  
+Nỗi mừng biết lấy chi cân?  
+Lời tan hợp chuyện xa gần thiếu đâu!  
+Hai em hỏi trước han sau,  
+Đứng trông chàng cũng trở sầu làm tươi.  
+Quây nhau lạy trước Phật đài,  
+Tái sinh trần tạ lòng người từ bi.  
+Kiệu hoa giục giã tức thì,  
+Vương ông dạy rước cùng về một nơi.  
+Nàng rằng: Chút phận hoa rơi,  
+Nửa đời nếm trải mọi mùi đắng cay.  
+Tính rằng mặt nước chân mây,  
+Lòng nào còn tưởng có rày nữa không?  
+Được rày tái thế tương phùng.  
+Khát khao đã thỏa tấm lòng lâu nay!  
+Đã đem mình bỏ am mây,  
+Tuổi này gởi với cỏ cây cũng vừa  
+Mùi thiền đã bén muối dưa,  
+Màu thiền ăn mặc đã ưa nâu sồng.  
+Sự đời đã tắt lửa lòng,  
+Còn chen vào chốn bụi hồng làm chi!  
+Dở dang nào có hay gì,  
+Đã tu tu trót quá thì thì thôi!  
+Trùng sinh ân nặng bể trời,  
+Lòng nào nỡ dứt nghĩa người ra đi?  
+Ông rằng: Bỉ thử nhất thì,  
+Tu hành thì cũng phải khi tòng quyền.  
+Phải điều cầu Phật cầu Tiên,  
+Tình kia hiếu nọ ai đền cho đây?  
+Độ sinh nhờ đức cao dày,  
+Lập am rồi sẽ rước thầy ở chung.  
+Nghe lời nàng cũng chiều lòng,  
+Giã sư giã cảnh đều cùng bước ra.  
+Một nhà về đến quan nha,  
+Đoàn viên vội mở tiệc hoa vui vầy.  
+Tàng tàng chén cúc dở say,  
+Đứng lên Vân mới giãi bày một hai.  
+Rằng: Trong tác hợp cơ trời.  
+Hai bên gặp gỡ một lời kết giao.  
+Gặp cơn bình địa ba đào,  
+Vậy đem duyên chị buộc vào cho em.  
+Cũng là phận cải duyên kim,  
+Cũng là máu chảy ruột mềm chớ sao?  
+Những là rày ước mai ao,  
+Mười lăm năm ấy biết bao nhiêu tình!  
+Bây giờ gương vỡ lại lành,  
+Khuôn thiêng lừa lọc đã dành có nơi.  
+Còn duyên may lại còn người,  
+Còn vầng trăng bạc còn lời nguyền xưa.  
+Quả mai ba bảy đương vừa,  
+Đào non sớm liệu xe tơ kịp thì.  
+Dứt lời nàng vội gạt đi:  
+Sự muôn năm cũ kể chi bây giờ?  
+Một lời tuy có ước xưa,  
+Xét mình dãi gió dầu mưa đã nhiều.  
+Nói càng hổ thẹn trăm chiều,  
+Thà cho ngọn nước thủy triều chảy xuôi!  
+Chàng rằng: Nói cũng lạ đời,  
+Dẫu lòng kia vậy còn lời ấy sao?  
+Một lời đã trót thâm giao,  
+Dưới dày có đất trên cao có trời!  
+Dẫu rằng vật đổi sao dời,  
+Tử sinh phải giữ lấy lời tử sinh!  
+Duyên kia có phụ chi tình,  
+Mà toan sẻ gánh chung tình làm hai?  
+Nàng rằng: Gia thất duyên hài,  
+Chút lòng ân ái ai ai cũng lòng.  
+Nghĩ rằng trong đạo vợ chồng,  
+Hoa thơm phong nhị trăng vòng tròn gương.  
+Chữ trinh đáng giá nghìn vàng,  
+Đuốc hoa chẳng thẹn với chàng mai xưa.  
+Thiếp từ ngộ biến đến giờ.  
+Ong qua bướm lại đã thừa xấu xa.  
+Bấy chầy gió táp mưa sa.  
+Mấy trăng cũng khuyết mấy hoa cũng tàn.  
+Còn chi là cái hồng nhan,  
+Đã xong thân thế còn toan nỗi nào?  
+Nghĩ mình chẳng hổ mình sao,  
+Dám đem trần cấu dự vào bố kinh!  
+Đã hay chàng nặng vì tình,  
+Trông hoa đèn chẳng thẹn mình lắm ru!  
+Từ rày khép cửa phòng thu,  
+Chẳng tu thì cũng như tu mới là!  
+Chàng dù nghĩ đến tình xa,  
+Đem tình cầm sắt đổi ra cầm cờ.  
+Nói chi kết tóc xe tơ,  
+Đã buồn cả ruột mà dơ cả đời!  
+Chàng rằng: Khéo nói nên lời,  
+Mà trong lẽ phải có người có ta!  
+Xưa nay trong đạo đàn bà,  
+Chữ trinh kia cũng có ba bảy đường,  
+Có khi biến có khi thường,  
+Có quyền nào phải một đường chấp kinh.  
+Như nàng lấy hiếu làm trinh,  
+Bụi nào cho đục được mình ấy vay?  
+Trời còn để có hôm nay,  
+Tan sương đầu ngõ vén mây giữa trời.  
+Hoa tàn mà lại thêm tươi,  
+Trăng tàn mà lại hơn mười rằm xưa.  
+Có điều chi nữa mà ngờ,  
+Khách qua đường để hững hờ chàng Tiêu!  
+Nghe chàng nói đã hết điều,  
+Hai thân thì cũng quyết theo một bài.  
+Hết lời khôn lẽ chối lời,  
+Cúi đầu nàng những vắn dài thở than.  
+Nhà vừa mở tiệc đoàn viên,  
+Hoa soi ngọn đuốc hồng chen bức là.  
+Cùng nhau giao bái một nhà,  
+Lễ đà đủ lễ đôi đà xứng đôi.  
+Động phòng dìu dặt chén mồi,  
+Bâng khuâng duyên mới ngậm ngùi tình xưa.  
+Những từ sen ngó đào tơ,  
+Mười lăm năm mới bây giờ là đây!  
+Tình duyên ấy hợp tan này,  
+Bi hoan mấy nỗi đêm chầy trăng cao.  
+Canh khuya bức gấm rủ thao,  
+Dưới đèn tỏ rạng má đào thêm xuân.  
+Tình nhân lại gặp tình nhân,  
+Hoa xưa ong cũ mấy phân chung tình.  
+Nàng rằng: Phận thiếp đã đành,  
+Có làm chi nữa cái mình bỏ đi!  
+Nghĩ chàng nghĩa cũ tình ghi,  
+Chiều lòng gọi có xướng tùy mảy may.  
+Riêng lòng đã thẹn lắm thay,  
+Cũng đà mặt dạn mày dày khó coi!  
+Những như âu yếm vành ngoài,  
+Còn toan mở mặt với người cho qua.  
+Lại như những thói người ta,  
+Vớt hương dưới đất bẻ hoa cuối mùa.  
+Khéo là giở nhuốc bày trò,  
+Còn tình đâu nữa là thù đấy thôi!  
+Người yêu ta xấu với người,  
+Yêu nhau thì lại bằng mười phụ nhau!  
+Cửa nhà dù tính về sau,  
+Thì còn em đó lọ cầu chị đây.  
+Chữ trinh còn một chút này,  
+Chẳng cầm cho vững lại giày cho tan!  
+Còn nhiều ân ái chan chan,  
+Hay gì vầy cánh hoa tàn mà chơi?  
+Chàng rằng: Gắn bó một lời,  
+Bỗng không cá nước chim trời lỡ nhau.  
+Xót người lưu lạc bấy lâu,  
+Tưởng thề thốt nặng nên đau đớn nhiều!  
+Thương nhau sinh tử đã liều,  
+Gặp nhau còn chút bấy nhiêu là tình.  
+Chừng xuân tơ liễu còn xanh,  
+Nghĩ rằng chưa thoát khỏi vành ái ân.  
+Gương trong chẳng chút bụi trần,  
+Một lời quyết hẳn muôn phần kính thêm!  
+Bấy lâu đáy bể mò kim,  
+Là nhiều vàng đá phải tìm trăng hoa?  
+Ai ngờ lại họp một nhà,  
+Lọ là chăn gối mới ra sắt cầm!  
+Nghe lời sửa áo cài trâm,  
+Khấu đầu lạy tạ cao thâm nghìn trùng:  
+Thân tàn gạn đục khơi trong,  
+Là nhờ quân tử khác lòng người ta.  
+Mấy lời tâm phúc ruột rà,  
+Tương tri dường ấy mới là tương tri!  
+Chở che đùm bọc thiếu chi,  
+Trăm năm danh tiết cũng vì đêm nay!  
+Thoắt thôi tay lại cầm tay,  
+Càng yêu vì nết càng say vì tình.  
+Thêm nến giá nối hương bình,  
+Cùng nhau lại chuốc chén quỳnh giao hoan.  
+Tình xưa lai láng khôn hàn,  
+Thong dong lại hỏi ngón đàn ngày xưa.  
+Nàng rằng: Vì mấy đường tơ,  
+Lầm người cho đến bây giờ mới thôi!  
+Ăn năn thì sự đã rồi!  
+Nể lòng người cũ vâng lời một phen.  
+Phím đàn dìu dặt tay tiên,  
+Khói trầm cao thấp tiếng huyền gần xa.  
+Khúc đâu đầm ấm dương hòa,  
+Ấy là hồ điệp hay là Trang sinh.  
+Khúc đâu êm ái xuân tình,  
+Ấy hồn Thục đế hay mình đỗ quyên?  
+Trong sao châu nhỏ duềnh quyên,  
+Ấm sao hạt ngọc Lam điền mới đông!  
+Lọt tai nghe suốt năm cung,  
+Tiếng nào là chẳng não nùng xôn xao.  
+Chàng rằng: Phổ ấy tay nào,  
 Xưa sao sầu thảm nay sao vui vầy?
 Tẻ vui bởi tại lòng này,
 Hay là khổ tận đến ngày cam lai?
