@@ -1,6 +1,6 @@
 <h1 align = "center">Đoạn trường Tân Thanh - Truyện Kiều</h1>
 <h1 align = "center">Nguyễn Du</h1>
-<p align = "center"> 
+
 Trăm năm trong cõi người ta,  
 Chữ tài chữ mệnh khéo là ghét nhau.  
 Trải qua một cuộc bể dâu,  
@@ -3255,4 +3255,4 @@ Thiện căn ở tại lòng ta,
 Chữ tâm kia mới bằng ba chữ tài.  
 Lời quê chắp nhặt dông dài,  
 Mua vui cũng được một vài trống canh.  
-</p>
+
