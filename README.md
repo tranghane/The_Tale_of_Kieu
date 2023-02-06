@@ -1,5 +1,6 @@
 <h1 align = "center">Đoạn trường Tân Thanh - Truyện Kiều</h1>
 <h1 align = "center">Nguyễn Du</h1> 
+
 Trăm năm trong cõi người ta,  
 Chữ tài chữ mệnh khéo là ghét nhau.  
 Trải qua một cuộc bể dâu,  
